@@ -68,7 +68,7 @@ $\color{#e0c9ff}{\text{ 𝘠𝘢𝘭𝘭 𝘢𝘳𝘦 𝘮𝘺 𝘤𝘭𝘰𝘴�
 
 $\color{#e0c9ff}{\text{ 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘤𝘩𝘶𝘥𝘴 𝘭𝘪𝘬𝘦 𝘢𝘯 𝘢𝘤𝘵𝘶𝘢𝘭 𝘧𝘢𝘵𝘩𝘦𝘳, 𝘐'𝘮 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘳𝘰𝘶𝘥 𝘰𝘧 𝘺𝘰𝘶 𝘣𝘰𝘵𝘩 𝘯𝘰 𝘮𝘢𝘵𝘵𝘦𝘳 𝘸𝘩𝘢𝘵 :-] }}$ 
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝗶𝗶𝗺𝘀𝗲𝘆](https://github.com/iimsey), [𝘀𝘁𝗮𝗿-𝗲𝗺𝗽𝗹𝗼𝘆𝗲𝗲](https://github.com/star-employee), [𝗲𝗮𝗿𝗹-𝗴𝗿𝗲𝘆-𝗺𝗽𝟰](https://github.com/earl-grey-mp4), [𝘇𝗲𝗽𝗵𝘆𝗿𝗰𝗹𝘆𝘀𝗺](https://github.com/zephyrclysm), [𝗽𝗮𝘀𝘁𝗲𝗹𝗹𝗰𝗹𝗼𝘂𝗱𝘆𝘆](https://github.com/pastellcloudyy)   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝘃𝗶𝗶𝗺𝘀𝗲𝘆](https://github.com/viimsey), [𝘀𝘁𝗮𝗿-𝗲𝗺𝗽𝗹𝗼𝘆𝗲𝗲](https://github.com/star-employee), [𝗲𝗮𝗿𝗹-𝗴𝗿𝗲𝘆-𝗺𝗽𝟰](https://github.com/earl-grey-mp4), [𝘇𝗲𝗽𝗵𝘆𝗿𝗰𝗹𝘆𝘀𝗺](https://github.com/zephyrclysm), [𝗽𝗮𝘀𝘁𝗲𝗹𝗹𝗰𝗹𝗼𝘂𝗱𝘆𝘆](https://github.com/pastellcloudyy)   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$
   $\color{#f6f0ff}{\text{𝐚𝐥𝐥 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫 𝐞𝐝𝐠𝐲𝐥𝐨𝐫𝐝𝐬 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚}}$ ([𝗱𝗿-𝘃𝗮𝗻𝘁𝗮](https://github.com/dr-vanta))
 
 $\color{#e0c9ff}{\text{ 𝘩𝘪 𝘨𝘶𝘺𝘴 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘳𝘪𝘥𝘦 𝘰𝘳 𝘥𝘪𝘦 𝘰𝘬𝘢𝘺....ᐣ 𝘯𝘰𝘯𝘦 𝘰𝘧 𝘺𝘰𝘶 𝘦𝘹𝘱𝘭𝘰𝘥𝘦 𝘰𝘯 𝘮𝘦 𝘰𝘬𝘢𝘺....ᐣ 𝘰𝘬𝘢𝘺 }}$
