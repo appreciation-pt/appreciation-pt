@@ -316,14 +316,14 @@ $\color{#ccbfff}{\text{(𝘢𝘴 𝘵𝘩𝘦𝘺 𝘵𝘳𝘶𝘭𝘺 𝘸𝘪�
 
 $\color{#afa4f5}{\text{𝘗𝘭𝘦𝘢𝘴𝘦 𝘴𝘵𝘢𝘺 𝘪𝘯 𝘮𝘺 𝘭𝘪𝘧𝘦 𝘶𝘯𝘵𝘪𝘭 𝘪 𝘵𝘳𝘶𝘭𝘺 𝘨𝘰 𝘵𝘰 𝘵𝘩𝘦 𝘢𝘭𝘭𝘴𝘱𝘢𝘳𝘬}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗜𝗺𝗹𝗶𝘁𝗲𝗿𝗮𝗹𝗹𝘆𝗕𝗲𝗹𝗹](http://github.com/ImliterallyBell), [𝗼𝗽𝘁𝗶𝗽𝗮𝘄𝘀](http://github.com/optipaws), [𝗗𝗮𝗮𝗲𝗖𝗵𝗿𝗶𝘀𝘁𝗶𝗻𝗲](http://github.com/DaaeChristine), [𝗗𝗼𝘃𝗲𝘀𝗼𝗳𝗢𝗽𝘁𝗶𝗺𝘂𝘀](http://github.com/DovesofOptimus) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐂𝐢𝐚𝐫𝐚𝐧}}$ [𝗹𝘆𝗻𝘅𝗰𝗶𝗳𝗶𝗲𝗱](http://github.com/lynxcified)
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗜𝗺𝗹𝗶𝘁𝗲𝗿𝗮𝗹𝗹𝘆𝗕𝗲𝗹𝗹](http://github.com/ImliterallyBell), [𝗼𝗽𝘁𝗶𝗽𝗮𝘄𝘀](http://github.com/optipaws), [𝗗𝗮𝗮𝗲𝗖𝗵𝗿𝗶𝘀𝘁𝗶𝗻𝗲](http://github.com/DaaeChristine), [𝗗𝗼𝘃𝗲𝘀𝗼𝗳𝗢𝗽𝘁𝗶𝗺𝘂𝘀](http://github.com/DovesofOptimus) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐂𝐢𝐚𝐫𝐚𝐧}}$ ([𝗹𝘆𝗻𝘅𝗰𝗶𝗳𝗶𝗲𝗱](http://github.com/lynxcified))
 
 $\color{#e0c9ff}{\text{𝘏𝘈𝘐𝘈𝘐𝘈𝘐𝘈 𝘠𝘖𝘜 𝘍𝘜𝘕𝘒𝘚.ᐟ.ᐟ.ᐟ 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘱𝘶𝘵𝘵𝘪𝘯𝘨 𝘶𝘱 𝘸𝘪𝘵𝘩 𝘮𝘦 𝘢𝘯𝘥 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘢𝘭𝘰𝘯𝘨, 𝘐 𝘸𝘢𝘴 𝘨𝘰𝘯𝘯𝘢 𝘨𝘪𝘷𝘦 𝘶𝘱 𝘰𝘯 𝘱𝘵 𝘢𝘧𝘵𝘦𝘳 𝘮𝘺 2 𝘦𝘹.ᐣ}}$
 $\color{#ccbfff}{\text{𝘍𝘳𝘪𝘦𝘯𝘥𝘴 𝘦𝘯𝘥𝘦𝘥 𝘶𝘱 𝘳𝘦𝘱𝘭𝘢𝘤𝘪𝘯𝘨 𝘮𝘦 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘨𝘦𝘯𝘶𝘪𝘯𝘦𝘭𝘺 𝘮𝘢𝘥𝘦 𝘮𝘦 𝘴𝘵𝘢𝘺 𝘧𝘪𝘭𝘭𝘪𝘯𝘨 𝘶𝘱 𝘵𝘩𝘦 𝘴𝘱𝘢𝘤𝘦 𝘸𝘪𝘵𝘩 𝘫𝘰𝘺 𝘢𝘯𝘥 𝘧𝘶𝘯𝘬, 𝘐𝘓𝘎𝘚𝘔.ᐟ.ᐟ 𝘗𝘩𝘢𝘳𝘮𝘢 𝘰𝘶𝘵}}$
 
 $\color{#afa4f5}{\text{𝘔𝘢𝘺 𝘰𝘶𝘳 𝘧𝘳𝘪𝘦𝘯𝘥𝘴𝘩𝘪𝘱 𝘣𝘦 𝘢𝘴 𝘴𝘵𝘳𝘰𝘯𝘨 𝘢𝘴 𝘵𝘩𝘦 𝘮𝘢𝘵𝘳𝘪𝘹.}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗴𝗲𝗿𝗺𝗮𝗻𝘀𝘁𝗮𝗿𝗲](http://github.com/germanstare) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐊𝐚𝐳}}$ [𝗣𝗼𝗶𝘀𝗼𝗻𝗲𝗱𝗿𝗶𝘁𝘂𝗮𝗹](https://github.com/poisonedritual)
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗴𝗲𝗿𝗺𝗮𝗻𝘀𝘁𝗮𝗿𝗲](http://github.com/germanstare) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐊𝐚𝐳}}$ ([𝗣𝗼𝗶𝘀𝗼𝗻𝗲𝗱𝗿𝗶𝘁𝘂𝗮𝗹](https://github.com/poisonedritual))
 
 $\color{#e0c9ff}{\text{𝘏𝘐𝘐 𝘟𝘈𝘓 𝘐 𝘓𝘖𝘝𝘌 𝘜 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘚𝘖 𝘔𝘠𝘊𝘏 𝘜 𝘔𝘌𝘈𝘕 𝘛𝘏𝘌 𝘞𝘖𝘙𝘓𝘋 𝘛𝘖 𝘔𝘌 𝘜𝘙 𝘔𝘛 𝘌𝘝𝘌𝘙𝘠𝘛𝘏𝘐𝘕𝘎 𝘐 𝘓𝘖𝘝𝘌 𝘜 𝘜𝘙 𝘈𝘞𝘙𝘚𝘖𝘔𝘌 𝘜𝘙 𝘈𝘞𝘌𝘚𝘖𝘔𝘌 𝘐 𝘓𝘝𝘖𝘌 𝘜 𝘐 𝘓𝘖𝘝𝘌 𝘜😢😢𝘐 𝘓𝘖𝘖𝘖𝘝𝘌𝘌 𝘠𝘖𝘠𝘜𝘛𝘜𝘜𝘠𝘖𝘠𝘖𝘠𝘖𝘠𝘐𝘛𝘠𝘜}}$
 
