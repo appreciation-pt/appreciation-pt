@@ -54,30 +54,30 @@ $\color{#a794f7}{\text{𝐎𝐭𝐡𝐞𝐫𝐰𝐢𝐬𝐞, 𝐰𝐞 𝐰𝐨�
 
 <div align="left">
   
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝘁𝗵𝗲𝘄𝗮𝗿𝗱𝗲𝗻𝗺𝗰𝘀𝗺](https://github.com/thewardenmcsm)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐌𝐚𝐭𝐭}}$ ([𝘆𝗲𝗹𝗹𝗼𝘄𝗱𝗲𝗹𝘁𝗮𝗿𝘂𝗻𝗲](https://github.com/yellowdeltarune))
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝘁𝗵𝗲𝘄𝗮𝗿𝗱𝗲𝗻𝗺𝗰𝘀𝗺](https://github.com/thewardenmcsm)   $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐌𝐚𝐭𝐭}}$ ([𝘆𝗲𝗹𝗹𝗼𝘄𝗱𝗲𝗹𝘁𝗮𝗿𝘂𝗻𝗲](https://github.com/yellowdeltarune))
 
 $\color{#e0c9ff}{\text{ 𝘪 𝘫𝘶𝘴𝘵 𝘸𝘢𝘯𝘯𝘢 𝘴𝘢𝘺 𝘵𝘩𝘢𝘯𝘬𝘴 𝘨𝘰𝘳𝘥𝘰𝘯 𝘧𝘰𝘳 𝘢𝘭𝘸𝘢𝘺𝘴 𝘣𝘦𝘪𝘯𝘨 𝘵𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘮𝘦,}}$ 
 $\color{#ccbfff}{\text{𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘦 𝘢𝘭𝘸𝘢𝘺𝘴 𝘧𝘦𝘦𝘭 𝘣𝘦𝘵𝘵𝘦𝘳 𝘸𝘩𝘦𝘯 𝘪 𝘧𝘦𝘭𝘵 𝘥𝘰𝘸𝘯, 𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘦 𝘭𝘢𝘶𝘨𝘩, 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 𝘸𝘪𝘵𝘩 𝘮𝘦,}}$ 
 $\color{#afa4f5}{\text{𝘫𝘶𝘴𝘵 𝘺𝘰𝘶 𝘤𝘩𝘦𝘤𝘬𝘪𝘯𝘨 𝘶𝘱 𝘰𝘯 𝘮𝘦 𝘸𝘢𝘴 𝘢𝘭𝘸𝘢𝘺𝘴 𝘦𝘯𝘰𝘶𝘨𝘩, 𝘴𝘰 𝘪 𝘸𝘢𝘯𝘵𝘦𝘥 𝘵𝘰 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘵𝘩𝘢𝘵.ᐟ }}$
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝗟𝗼𝟬𝗻𝘆𝗚𝗼𝗼𝗻](https://github.com/Lo0nyGoon), [𝗖𝗿𝘂𝗰𝗶𝗳𝗶𝗲𝗱𝗢𝗿𝗴𝗮𝗻](https://github.com/CrucifiedOrgan), 𝐚𝐧𝐝 [𝗦𝗶𝗻𝗴𝗲𝗿-𝗼𝗳-𝘁𝗵𝗲-𝗻𝗲𝘄𝗴𝗲𝗻𝗲𝘀𝗶𝘀](https://github.com/Singer-of-the-newgenesis)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐌𝐢𝐤𝐚𝐞𝐥𝐚}}$ ([𝗚𝟬𝗿𝗲𝗼𝗹𝗼𝗴𝘆](https://github.com/G0reology))
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝗟𝗼𝟬𝗻𝘆𝗚𝗼𝗼𝗻](https://github.com/Lo0nyGoon), [𝗖𝗿𝘂𝗰𝗶𝗳𝗶𝗲𝗱𝗢𝗿𝗴𝗮𝗻](https://github.com/CrucifiedOrgan), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗦𝗶𝗻𝗴𝗲𝗿-𝗼𝗳-𝘁𝗵𝗲-𝗻𝗲𝘄𝗴𝗲𝗻𝗲𝘀𝗶𝘀](https://github.com/Singer-of-the-newgenesis)   $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐌𝐢𝐤𝐚𝐞𝐥𝐚}}$ ([𝗚𝟬𝗿𝗲𝗼𝗹𝗼𝗴𝘆](https://github.com/G0reology))
 
 $\color{#e0c9ff}{\text{ 𝘠𝘢𝘭𝘭 𝘢𝘳𝘦 𝘮𝘺 𝘤𝘭𝘰𝘴𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘰𝘬, 𝘱𝘵 𝘪𝘴 𝘯𝘦𝘷𝘦𝘳 𝘣𝘰𝘳𝘪𝘯𝘨 𝘸 𝘺𝘢𝘭𝘭 𝘰𝘯𝘭𝘪𝘯𝘦 𝘢𝘯𝘥 𝘪𝘭𝘺 𝘺𝘢𝘭𝘭/𝘱 𝘰𝘬𝘰𝘬 }}$ 
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝘂𝗽𝗶𝗶𝗱𝘀𝗵𝗼𝘁](https://github.com/cupiidshot)   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝘀𝗲𝗹𝗳-𝗽𝗿𝗲𝘀𝗲𝗿𝘃𝗮𝘁𝗶𝗼𝗻𝟴](https://github.com/self-preservation8)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚}}$ ([𝗱𝗿-𝘃𝗮𝗻𝘁𝗮](https://github.com/dr-vanta))
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝘂𝗽𝗶𝗶𝗱𝘀𝗵𝗼𝘁](https://github.com/cupiidshot),   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝘀𝗲𝗹𝗳-𝗽𝗿𝗲𝘀𝗲𝗿𝘃𝗮𝘁𝗶𝗼𝗻𝟴](https://github.com/self-preservation8)   $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚}}$ ([𝗱𝗿-𝘃𝗮𝗻𝘁𝗮](https://github.com/dr-vanta))
 
 $\color{#e0c9ff}{\text{ 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘤𝘩𝘶𝘥𝘴 𝘭𝘪𝘬𝘦 𝘢𝘯 𝘢𝘤𝘵𝘶𝘢𝘭 𝘧𝘢𝘵𝘩𝘦𝘳, 𝘐'𝘮 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘳𝘰𝘶𝘥 𝘰𝘧 𝘺𝘰𝘶 𝘣𝘰𝘵𝘩 𝘯𝘰 𝘮𝘢𝘵𝘵𝘦𝘳 𝘸𝘩𝘢𝘵 :-] }}$ 
 
   $\color{#f6f0ff}{\text{♡︎}}$ [𝘃𝗶𝗶𝗺𝘀𝗲𝘆](https://github.com/viimsey), [𝘀𝘁𝗮𝗿-𝗲𝗺𝗽𝗹𝗼𝘆𝗲𝗲](https://github.com/star-employee), [𝗲𝗮𝗿𝗹-𝗴𝗿𝗲𝘆-𝗺𝗽𝟰](https://github.com/earl-grey-mp4), [𝘇𝗲𝗽𝗵𝘆𝗿𝗰𝗹𝘆𝘀𝗺](https://github.com/zephyrclysm), [𝗽𝗮𝘀𝘁𝗲𝗹𝗹𝗰𝗹𝗼𝘂𝗱𝘆𝘆](https://github.com/pastellcloudyy)   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$
-  $\color{#f6f0ff}{\text{𝐚𝐥𝐥 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫 𝐞𝐝𝐠𝐲𝐥𝐨𝐫𝐝𝐬 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚}}$ ([𝗱𝗿-𝘃𝗮𝗻𝘁𝗮](https://github.com/dr-vanta))
+  $\color{#f6f0ff}{\text{𝐚𝐥𝐥 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫 𝐞𝐝𝐠𝐲𝐥𝐨𝐫𝐝𝐬 𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚}}$ ([𝗱𝗿-𝘃𝗮𝗻𝘁𝗮](https://github.com/dr-vanta))
 
 $\color{#e0c9ff}{\text{ 𝘩𝘪 𝘨𝘶𝘺𝘴 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘳𝘪𝘥𝘦 𝘰𝘳 𝘥𝘪𝘦 𝘰𝘬𝘢𝘺....ᐣ 𝘯𝘰𝘯𝘦 𝘰𝘧 𝘺𝘰𝘶 𝘦𝘹𝘱𝘭𝘰𝘥𝘦 𝘰𝘯 𝘮𝘦 𝘰𝘬𝘢𝘺....ᐣ 𝘰𝘬𝘢𝘺 }}$
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝗹𝟬𝗩𝗘𝗦𝟭𝗖𝗞𝗸](https://github.com/l0VES1CKk)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗞𝗮𝗯𝗮𝗻𝟬𝘇](https://github.com/kaban0z)
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝗹𝟬𝗩𝗘𝗦𝟭𝗖𝗞𝗸](https://github.com/l0VES1CKk)   $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗞𝗮𝗯𝗮𝗻𝟬𝘇](https://github.com/kaban0z)
 
 $\color{#e0c9ff}{\text{𝘏𝘐 𝘛𝘞𝘐𝘕 𝘏𝘈𝘝𝘌 𝘈 𝘎𝘖𝘖𝘋 𝘋𝘈𝘠}}$ 
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝗣𝗼𝗶𝘀𝗼𝗻𝗲𝗱𝗿𝗶𝘁𝘂𝗮𝗹](https://github.com/poisonedritual)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝗣𝗼𝗶𝘀𝗼𝗻𝗲𝗱𝗿𝗶𝘁𝘂𝗮𝗹](https://github.com/poisonedritual)   $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐚𝐧 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
 
 $\color{#e0c9ff}{\text{ 𝘏𝘪𝘪 𝘒𝘢𝘻𝘻𝘪 𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘢 𝘭𝘰𝘵 𝘢𝘯𝘥 𝘺𝘰𝘶 𝘮𝘦𝘢𝘯 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘵𝘰 𝘮𝘦,}}$ 
 $\color{#ccbfff}{\text{𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘴𝘵𝘢𝘺𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘮𝘦 𝘵𝘩𝘳𝘰𝘶𝘨𝘩 𝘮𝘺 𝘩𝘪𝘨𝘩𝘴 𝘢𝘯𝘥 𝘭𝘰𝘸𝘴 𝘢𝘯𝘥 𝘱𝘶𝘭𝘭𝘪𝘯𝘨 𝘮𝘦 𝘰𝘶𝘵 𝘰𝘧 𝘵𝘩𝘦 𝘥𝘦𝘦𝘱 𝘩𝘰𝘭𝘦 𝘐 𝘥𝘶𝘨 𝘮𝘺𝘴𝘦𝘭𝘧..}}$ 
@@ -85,14 +85,14 @@ $\color{#afa4f5}{\text{𝘵𝘩𝘳𝘰𝘶𝘨𝘩𝘰𝘶𝘵 𝘦𝘷𝘦𝘳
 
 $\color{#8b7ee0}{\text{...𝘈𝘯𝘥 𝘢𝘭𝘸𝘢𝘺𝘴 𝘴𝘵𝘢𝘺𝘦𝘥 𝘶𝘱 𝘯𝘪𝘨𝘩𝘵𝘴 𝘫𝘶𝘴𝘵 𝘵𝘰 𝘩𝘦𝘭𝘱 𝘮𝘦 𝘤𝘢𝘭𝘮 𝘥𝘰𝘸𝘯.. 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘴𝘰 𝘮𝘶𝘤𝘩..𝘪 𝘸𝘰𝘶𝘭𝘥𝘯𝘵 𝘣𝘦 𝘸𝘩𝘰 𝘪 𝘢𝘮 𝘯𝘰𝘸 𝘸𝘪𝘵𝘩𝘰𝘶𝘵 𝘺𝘰𝘶.ᐟ.ᐟ..ᐟ.ᐟ }}$
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝗷𝗮𝗻𝗶𝘀𝗮𝘃𝗲𝗿𝗮𝗴𝗲](https://github.com/janisaverage)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐋𝐨𝐥𝐨}}$
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝗷𝗮𝗻𝗶𝘀𝗮𝘃𝗲𝗿𝗮𝗴𝗲](https://github.com/janisaverage)   $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐋𝐨𝐥𝐨}}$
 
 $\color{#e0c9ff}{\text{ 𝘩𝘪 𝘫𝘢𝘯, 𝘪 𝘸𝘢𝘯𝘵𝘦𝘥 𝘵𝘰 𝘴𝘢𝘺 𝘪 𝘢𝘭𝘸𝘢𝘺𝘴 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦𝘥 𝘦𝘷𝘦𝘳𝘺𝘵𝘩𝘪𝘯𝘨 𝘺𝘰𝘶'𝘷𝘦 𝘥𝘰𝘯𝘦 𝘧𝘰𝘳 𝘮𝘦,}}$
 $\color{#ccbfff}{\text{𝘺𝘰𝘶𝘳 𝘦𝘧𝘧𝘰𝘳𝘵𝘴 𝘵𝘰 𝘮𝘢𝘬𝘦 𝘮𝘦 𝘩𝘢𝘱𝘱𝘺 𝘪 𝘸𝘪𝘭𝘭 𝘢𝘭𝘸𝘢𝘺𝘴 𝘯𝘰𝘵𝘪𝘤𝘦 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘐 𝘸𝘪𝘭𝘭 𝘧𝘰𝘳𝘦𝘷𝘦𝘳 𝘤𝘩𝘦𝘳𝘪𝘴𝘩 𝘵𝘩𝘢𝘵. }}$
 
 $\color{#afa4f5}{\text{ 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘚𝘖 𝘔𝘜𝘊𝘏 𝘑𝘈𝘕 𝘈𝘜𝘎𝘏𝘏 }}$ 
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝘆𝘂𝗸𝗶𝗼𝘇𝗸𝗶](https://github.com/yukiozki), [𝗕𝟭𝗺𝗷𝗶𝗻𝗶](https://github.com/B1mjini), [𝗱𝘆𝘀𝗼𝗰𝗼𝗿𝗲](https://github.com/dysocore), [𝗚𝗮𝗯𝗯𝗲𝗿𝘇𝗼𝗻𝗻𝗻𝗻](https://github.com/Gabberzonnnn), [𝗭𝘆𝗶𝗲𝗲𝗲](https://github.com/Zyieee)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚}}$
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝘆𝘂𝗸𝗶𝗼𝘇𝗸𝗶](https://github.com/yukiozki), [𝗕𝟭𝗺𝗷𝗶𝗻𝗶](https://github.com/B1mjini), [𝗱𝘆𝘀𝗼𝗰𝗼𝗿𝗲](https://github.com/dysocore), [𝗚𝗮𝗯𝗯𝗲𝗿𝘇𝗼𝗻𝗻𝗻𝗻](https://github.com/Gabberzonnnn), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗭𝘆𝗶𝗲𝗲𝗲](https://github.com/Zyieee)   $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚}}$
 
 $\color{#e0c9ff}{\text{ 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘢𝘳𝘦 𝘴𝘰 𝘤𝘰𝘰𝘭 𝘢𝘯𝘥 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘮𝘦𝘢𝘯 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘵𝘰 𝘮𝘦 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘸𝘦 𝘥𝘰𝘯𝘵 𝘵𝘢𝘭𝘬 𝘢𝘴 𝘮𝘶𝘤𝘩 𝘢𝘴 𝘣𝘦𝘧𝘰𝘳𝘦.ᐟ.ᐟ}}$
 $\color{#ccbfff}{\text{𝘪𝘮 𝘴𝘰 𝘨𝘭𝘢𝘥 𝘵𝘩𝘢𝘵 𝘪𝘮 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘢𝘭𝘭 𝘵𝘩𝘦 𝘭𝘰𝘯𝘦𝘭𝘺 𝘥𝘢𝘺𝘴 𝘵𝘩𝘢𝘵 𝘪𝘷𝘦 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘦𝘥 𝘩𝘢𝘷𝘦 𝘣𝘦𝘦𝘯 𝘭𝘦𝘴𝘴 𝘴𝘪𝘯𝘤𝘦 𝘪 𝘮𝘦𝘵 𝘺𝘰𝘶 𝘢𝘭𝘭.ᐟ.ᐟ 𝘪𝘭𝘺 𝘶 𝘨𝘶𝘺𝘴}}$
@@ -101,7 +101,7 @@ $\color{#afa4f5}{\text{𝘪 𝘮𝘢𝘺 𝘣𝘦 𝘮𝘦𝘢𝘯 𝘴𝘰𝘮�
 
 </p>
 
-  $\color{#f6f0ff}{\text{♡︎}}$  [𝗣𝗶𝘅𝗲𝗹𝗕𝗿𝗶𝗰𝗸𝘇](https://github.com/PixelBrickz), [𝗦𝗼𝗰𝗶𝗮𝗹-𝟯](https://github.com/Social-3)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 ♡ 𝐓𝐨𝐛𝐢𝐚𝐬!}}$
+  $\color{#f6f0ff}{\text{♡︎}}$  [𝗣𝗶𝘅𝗲𝗹𝗕𝗿𝗶𝗰𝗸𝘇](https://github.com/PixelBrickz), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗦𝗼𝗰𝗶𝗮𝗹-𝟯](https://github.com/Social-3)   $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 ♡ 𝐓𝐨𝐛𝐢𝐚𝐬!}}$
 
 $\color{#e0c9ff}{\text{ 𝘺𝘰𝘶 𝘵𝘸𝘰 𝘢𝘳𝘦 𝘵𝘩𝘦 𝘮𝘰𝘴𝘵 𝘯𝘪𝘤𝘦𝘴𝘵 𝘱𝘦𝘰𝘱𝘭𝘦 𝘦𝘷𝘦𝘳, 𝘴𝘵𝘢𝘺𝘪𝘯𝘨 𝘣𝘺 𝘮𝘺 𝘴𝘪𝘥𝘦 𝘭𝘰𝘯𝘨𝘦𝘳 𝘵𝘩𝘢𝘯 𝘰𝘵𝘩𝘦𝘳𝘴 𝘤𝘰𝘶𝘭𝘥 }}$
 $\color{#ccbfff}{\text{ 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘎𝘜𝘠𝘚. }}$
@@ -121,11 +121,11 @@ $\color{#655dc7}{\text{𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘣𝘦�
 
 $\color{#e0c9ff}{\text{ 𝘪𝘯 𝘤𝘰𝘯𝘤𝘭𝘶𝘴𝘪𝘰𝘯, 𝘪 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘣𝘰𝘵𝘩 𝘷𝘦𝘳𝘺 𝘮𝘶𝘤𝘩, 𝘪𝘮 𝘨𝘭𝘢𝘥 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 : ) }}$
 
-  $\color{#f6f0ff}{\text{♡︎}}$  [𝟲𝗴𝗿𝗮𝗺𝗺𝗶](https://github.com/6grammi)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
+  $\color{#f6f0ff}{\text{♡︎}}$  [𝟲𝗴𝗿𝗮𝗺𝗺𝗶](https://github.com/6grammi)   $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐚𝐧 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
 
 $\color{#e0c9ff}{\text{𝘏𝘐 𝘚𝘛𝘐𝘕𝘒𝘠𝘠, 𝘐 𝘞𝘈𝘕𝘛 𝘛𝘖 𝘚𝘈𝘠 𝘐 𝘏𝘖𝘗𝘌 𝘜 𝘏𝘈𝘝𝘌 𝘈 𝘕𝘐𝘊𝘌 𝘋𝘈𝘠𝘠𝘠 𝘈𝘕𝘋 𝘠𝘖𝘜 𝘉𝘌𝘛𝘛𝘌𝘙 𝘛𝘈𝘒𝘌 𝘊𝘈𝘙𝘌 𝘖𝘍 𝘜𝘙𝘚𝘌𝘓𝘍.ᐟ.ᐟ}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝗿𝗲𝗮𝗺𝗽𝘂𝗳𝗳𝗹𝗶𝗻𝗴𝘀](https://github.com/creampufflings), [𝗮𝗲𝘁𝗵𝗲𝗿𝗽𝗮𝗿𝗮𝗱𝗶𝘀𝗲](https://github.com/aetherparadise), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗶𝘁𝗼𝗯𝗲𝗮𝗿](https://github.com/itobear) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐑𝐚𝐢𝐧.𝐞!}}$
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝗿𝗲𝗮𝗺𝗽𝘂𝗳𝗳𝗹𝗶𝗻𝗴𝘀](https://github.com/creampufflings), [𝗮𝗲𝘁𝗵𝗲𝗿𝗽𝗮𝗿𝗮𝗱𝗶𝘀𝗲](https://github.com/aetherparadise), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗶𝘁𝗼𝗯𝗲𝗮𝗿](https://github.com/itobear) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐑𝐚𝐢𝐧.𝐞!}}$
 
 $\color{#e0c9ff}{\text{𝘺𝘶 𝘨𝘶𝘺.𝘴 𝘳 𝘥𝘢 𝘣𝘦.𝘴𝘵 𝘱𝘦𝘰 𝘱𝘭𝘦 𝘦𝘷𝘦𝘳 𝘪 𝘤𝘢𝘯 .𝘵 𝘣𝘦𝘭𝘪𝘦𝘷 𝘦 𝘺𝘶 𝘨𝘶𝘺.𝘴 𝘳 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘧𝘳𝘦𝘪𝘯𝘥𝘴 ,,}}$
 $\color{#ccbfff}{\text{𝘪𝘭 𝘶𝘷. 𝘶𝘨𝘶𝘺𝘴 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘪𝘵 𝘯𝘮𝘢𝘬 𝘦.𝘴 𝘮𝘦 𝘤𝘳𝘺 𝘪𝘮 𝘴𝘰 𝘨𝘭𝘢. 𝘥 𝘪 𝘮𝘦𝘵 𝘥𝘢 𝘵𝘩𝘳𝘦𝘦 𝘰𝘧 𝘺𝘰𝘶;𝘸𝘪𝘵𝘩𝘰𝘶 .𝘵 𝘺𝘶 𝘨𝘶𝘺𝘴 𝘪 𝘸𝘰𝘶𝘥𝘭𝘯.𝘵 𝘩𝘢𝘷𝘦 𝘮𝘢𝘯𝘺 𝘱𝘦𝘰𝘱 𝘭𝘦 2 𝘵𝘢𝘭𝘬 2 . .}}$
@@ -134,73 +134,73 @@ $\color{#afa4f5}{\text{𝘪 𝘭𝘶𝘷 𝘶 𝘨𝘶𝘺𝘴 𝘴𝘮 𝘺𝘶
 $\color{#8b7ee0}{\text{𝘪 𝘮𝘪𝘨.𝘩 𝘵 𝘣𝘦 𝘢 𝘭𝘪𝘭 𝘴𝘵𝘶𝘱 𝘪𝘥 𝘢𝘯 𝘴𝘵𝘶 .𝘧𝘧 𝘣𝘶𝘵 𝘪𝘭𝘶 𝘷 𝘶 𝘨𝘶𝘺𝘴 𝘮𝘺 𝘣𝘧𝘧𝘴 𝘰𝘬𝘪 ♡}}$
 
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝗹𝗶𝗴𝗵𝘁𝗻𝗶𝗻𝗴𝗿𝗼𝗱-𝗻𝗶𝗻𝗷𝗮 ](https://github.com/lightningrod-ninja) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝗹𝗶𝗴𝗵𝘁𝗻𝗶𝗻𝗴𝗿𝗼𝗱-𝗻𝗶𝗻𝗷𝗮 ](https://github.com/lightningrod-ninja) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐚𝐧 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
 
 $\color{#e0c9ff}{\text{𝘴𝘵𝘪𝘯𝘬 𝘴𝘵𝘪𝘮𝘬 𝘴𝘵𝘪𝘯𝘬𝘬𝘬𝘺𝘺𝘺𝘺𝘺 .ᐟ.ᐟ 𝘶 𝘴𝘵𝘪𝘯𝘬 𝘰𝘬 𝘫𝘢𝘺.ᐣ 𝘣𝘺𝘦}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝘅𝗾𝘂𝗲𝘁𝘁𝗲](https://github.com/cxquette) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗲𝗹𝗲𝗰𝘁𝗿𝗶𝗳𝘆𝗽𝗶𝗻𝗸](https://github.com/electrifypink)!
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝘅𝗾𝘂𝗲𝘁𝘁𝗲](https://github.com/cxquette) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗲𝗹𝗲𝗰𝘁𝗿𝗶𝗳𝘆𝗽𝗶𝗻𝗸](https://github.com/electrifypink)!
 
 $\color{#e0c9ff}{\text{𝘠𝘖𝘜𝘙 𝘚𝘖𝘖𝘖𝘖 𝘊𝘖𝘖𝘓 𝘈𝘕𝘋 𝘉𝘌𝘚𝘛𝘌𝘚𝘛 𝘍𝘙𝘐𝘌𝘕𝘋 ♯𝘉𝘖𝘖𝘔𝘍 𝘖𝘒𝘈𝘠 𝘐 𝘓𝘐𝘒𝘌 𝘠𝘖𝘜𝘙 𝘚𝘒𝘐𝘕𝘚 𝘠𝘖𝘜 𝘊𝘖𝘖𝘓 𝘉𝘖𝘐 𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈}}$
 
 $\color{#ccbfff}{\text{𝘦𝘭𝘦𝘤𝘵𝘳𝘪𝘧𝘺𝘱𝘪𝘯𝘬 𝘮𝘢𝘥𝘦 𝘵𝘩𝘪𝘴 𝘮𝘦𝘴𝘴𝘢𝘨𝘦, 𝘩𝘪 𝘣𝘢𝘳𝘥}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗡𝗼𝗰𝘁𝗶𝗹𝘂𝘃𝗮𝗻𝗰𝘆](https://github.com/noctiluvancy) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐑𝐚𝐳𝐭 𝐭𝐡𝐞 𝐬𝐭𝐮𝐩𝐢𝐝 𝐑𝐚𝐭}}$ ([𝗧𝟬𝗥𝟰𝗫](https://github.com/T0R4X))
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗡𝗼𝗰𝘁𝗶𝗹𝘂𝘃𝗮𝗻𝗰𝘆](https://github.com/noctiluvancy) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐑𝐚𝐳𝐭 𝐭𝐡𝐞 𝐬𝐭𝐮𝐩𝐢𝐝 𝐑𝐚𝐭}}$ ([𝗧𝟬𝗥𝟰𝗫](https://github.com/T0R4X))
 
 $\color{#e0c9ff}{\text{𝘠𝘰𝘶𝘳𝘦 𝘭𝘪𝘵𝘦𝘳𝘢𝘭𝘭𝘺 𝘵𝘩𝘦 𝘣𝘦𝘴𝘵 𝘢𝘯𝘥 𝘤𝘢𝘳𝘪𝘯𝘨 𝘣𝘰𝘺𝘧𝘳𝘪𝘦𝘯𝘥 𝘦𝘦𝘷𝘦𝘳 .ᐟ.ᐟ 𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘩𝘩𝘦𝘩𝘦𝘩𝘦𝘩𝘦𝘩𝘦𝘦𝘦𝘩}}$
 
 $\color{#ccbfff}{\text{𝘛𝘩𝘪𝘴 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘪𝘰𝘯 𝘮𝘦𝘴𝘴𝘢𝘨𝘦 𝘸𝘢𝘴 𝘧𝘳𝘰𝘮 𝘛0𝘙4𝘟 ⁠◠𝘰⁠◠}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗜𝗹𝗼𝘃𝗲-𝗵𝗶𝗺](https://github.com/ilove-him)  , [𝗰-𝘂𝘁𝗲𝘀𝘆](https://github.com/c-utesy) $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗢𝗹𝗴𝗮𝗦𝗶𝗻𝘅𝗲𝗿](https://github.com/olgasinxer) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗩𝗔𝗿𝘁𝗳𝘂𝗹𝘁𝗿𝘂𝘀𝘁](https://github.com/VArtfultrust)
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗜𝗹𝗼𝘃𝗲-𝗵𝗶𝗺](https://github.com/ilove-him)  , [𝗰-𝘂𝘁𝗲𝘀𝘆](https://github.com/c-utesy) $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗢𝗹𝗴𝗮𝗦𝗶𝗻𝘅𝗲𝗿](https://github.com/olgasinxer) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗩𝗔𝗿𝘁𝗳𝘂𝗹𝘁𝗿𝘂𝘀𝘁](https://github.com/VArtfultrust)
 
 $\color{#e0c9ff}{\text{𝘠𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘴𝘰 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘴𝘢𝘶𝘤𝘦 𝘪𝘭𝘰𝘷𝘦 𝘭𝘰𝘷𝘦𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘭𝘭𝘭𝘭𝘭𝘭𝘭 𝘢𝘸𝘸𝘸𝘸𝘸𝘸.𝘸.𝘸.𝘸.𝘸𝘸𝘸𝘸}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝗽𝗻-𝗰𝗼𝗼𝗸](https://github.com/cpn-cook) $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝘀𝘁𝗲𝗮𝗺𝗽𝘂𝗻𝗸𝗶𝘁𝘁𝘆](https://github.com/steampunkitty) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐥𝐨𝐫𝐢𝐞}}$
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝗽𝗻-𝗰𝗼𝗼𝗸](https://github.com/cpn-cook) $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝘀𝘁𝗲𝗮𝗺𝗽𝘂𝗻𝗸𝗶𝘁𝘁𝘆](https://github.com/steampunkitty) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐥𝐨𝐫𝐢𝐞}}$
 
 $\color{#e0c9ff}{\text{𝘩𝘪 𝘨𝘶𝘺𝘴 𝘪 𝘏𝘈𝘛𝘌 𝘠𝘖𝘜 𝘨𝘶𝘺𝘴 𝘴𝘰 𝘮𝘶𝘤𝘩.... 𝘨𝘦𝘵 𝘯𝘰𝘳𝘮𝘢𝘭 𝘚𝘔𝘏𝘏𝘏𝘏 𝘷𝘦𝘳𝘪𝘵𝘺 𝘸𝘪𝘭𝘭 𝘨𝘦𝘵 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴... 𝘬𝘪𝘥𝘥𝘪𝘯𝘨 𝘪𝘭𝘺 𝘨𝘶𝘺𝘴 𝘢𝘯𝘥 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘮𝘢𝘬𝘦 𝘮𝘺}}$ $\color{#ccbfff}{\text{𝘥𝘢𝘺 𝘥𝘦𝘴𝘱𝘪𝘵𝘦 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘣𝘭𝘰𝘸𝘪𝘯𝘨 𝘶𝘱 𝘮𝘺 𝘭𝘢𝘱𝘵𝘰𝘱.ᐟ.ᐟ.ᐟ.ᐟ.ᐟ - 𝘷𝘢𝘭}}$
 
 $\color{#afa4f5}{\text{𝘸𝘦 𝘢𝘳𝘦 𝘬𝘯𝘰𝘸𝘯 𝘢𝘴 𝘵𝘩𝘦 𝘴𝘱𝘦𝘳𝘮𝘪𝘵𝘺 𝘷𝘦𝘳𝘪𝘦𝘯𝘵𝘴 (𝘵𝘩𝘢𝘵𝘴 𝘰𝘶𝘳 𝘨𝘤 𝘯𝘢𝘮𝘦)}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝘀𝗲𝗱𝗲𝗻𝘁𝗮𝗿𝘆𝘄𝗮𝗶𝗹𝘀](https://github.com/sedentarywails) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗦𝘁𝗲𝗽𝗵](https://github.com/draingun)
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝘀𝗲𝗱𝗲𝗻𝘁𝗮𝗿𝘆𝘄𝗮𝗶𝗹𝘀](https://github.com/sedentarywails) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗦𝘁𝗲𝗽𝗵](https://github.com/draingun)
 
 $\color{#e0c9ff}{\text{𝘩𝘪 𝘮𝘢𝘤 𝘩𝘢𝘩𝘢}}$
 
 $\color{#ccbfff}{\text{𝘮𝘺 𝘨𝘪𝘵𝘩𝘶𝘣 𝘪𝘴 @𝘥𝘳𝘢𝘪𝘯𝘨𝘶𝘯 𝘧𝘰𝘭𝘭𝘰𝘸 𝘮𝘦.ᐟ.ᐟ.ᐟ}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗠𝗲𝘄𝗵𝗲𝗵𝗲](https://github.com/Mewhehe) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗷𝘂𝗽𝗶𝘁𝗲𝗿𝗶𝗰𝗲𝘆𝗺𝗼𝗼𝗻𝘀𝗲𝘅𝗽𝗹𝗼𝗿𝗲𝗿](https://github.com/jupitericeymoonsexplorer)
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗠𝗲𝘄𝗵𝗲𝗵𝗲](https://github.com/Mewhehe) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗷𝘂𝗽𝗶𝘁𝗲𝗿𝗶𝗰𝗲𝘆𝗺𝗼𝗼𝗻𝘀𝗲𝘅𝗽𝗹𝗼𝗿𝗲𝗿](https://github.com/jupitericeymoonsexplorer)
 
 $\color{#e0c9ff}{\text{𝘩𝘪 𝘮𝘦𝘸.ᐟ.ᐟ.ᐟ 𝘺𝘰𝘶'𝘳𝘦 𝘴𝘰 𝘤𝘰𝘰𝘭 𝘢𝘯𝘥 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘢𝘯𝘯𝘥 𝘪 𝘭𝘰𝘷𝘦 𝘶𝘳 𝘱𝘰𝘯𝘪𝘦𝘴.ᐟ.ᐟ 𝘰𝘬 𝘣𝘺𝘦}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗙𝗹𝘂𝗳𝗳𝗽𝘂𝗳𝗳𝘇](https://github.com/fluffpuffz) , [𝗫𝗔𝗡𝗗𝗥𝗘𝗢𝗛𝗭𝗔𝗡𝗭𝗔𝗡](https://github.com/xandreohzanzan) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗢𝗛𝗕𝗨𝗡𝗡𝗬𝗕𝗨𝗡𝗡𝗬](https://github.com/OHBUNNYBUNNY)
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗙𝗹𝘂𝗳𝗳𝗽𝘂𝗳𝗳𝘇](https://github.com/fluffpuffz), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗫𝗔𝗡𝗗𝗥𝗘𝗢𝗛𝗭𝗔𝗡𝗭𝗔𝗡](https://github.com/xandreohzanzan) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗢𝗛𝗕𝗨𝗡𝗡𝗬𝗕𝗨𝗡𝗡𝗬](https://github.com/OHBUNNYBUNNY)
 
 $\color{#e0c9ff}{\text{𝘺𝘰𝘶 𝘵𝘸𝘰 𝘮𝘢𝘬𝘦 𝘮𝘺 𝘥𝘢𝘺 𝘣𝘳𝘪𝘨𝘩𝘵𝘦𝘳 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘧𝘰𝘳 𝘢𝘭𝘸𝘢𝘺𝘴 𝘣𝘦𝘪𝘯𝘨 𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘮𝘦}}$
 
 $\color{#ccbfff}{\text{𝘠𝘰𝘶 𝘴𝘩𝘰𝘶𝘭𝘥 𝘧𝘰𝘭𝘭𝘰𝘸 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘮𝘦 (𝘖𝘏𝘉𝘜𝘕𝘕𝘠𝘉𝘜𝘕𝘕𝘠) 𝘰𝘯 𝘨𝘪𝘵𝘩𝘶𝘣 𝘸𝘦 𝘤𝘰𝘰𝘭 𝘵𝘳𝘶𝘴𝘵 /𝘫𝘰𝘬𝘦}}$
 
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗽𝗮𝘄𝗳𝗲𝗰𝘁𝘁](https://github.com/pawfectt) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐦𝐨𝐞 𝐦𝐨𝐞}}$
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗽𝗮𝘄𝗳𝗲𝗰𝘁𝘁](https://github.com/pawfectt) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐦𝐨𝐞 𝐦𝐨𝐞}}$
 
 
 $\color{#e0c9ff}{\text{𝘏𝘪 𝘮𝘺 𝘧𝘪𝘳𝘴𝘵 𝘌𝘝𝘌𝘙 𝘧𝘳𝘪𝘦𝘯𝘥 𝘰𝘯 ♯𝘗𝘵 𝘪 𝘩𝘰𝘱𝘦 𝘺𝘰𝘶𝘳𝘦 𝘥𝘰𝘪𝘯𝘨 𝘨𝘰𝘰𝘥 𝘢𝘯𝘥 𝘢𝘭𝘭 𝘰𝘬 .ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ 𝘭𝘢𝘭𝘢𝘭𝘢}}$
 
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗹𝗶𝗴𝗵𝘁𝘁𝗵𝗮𝘁𝘁𝗿𝗶𝗲𝘀](https://github.com/lightthattries) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗖𝗮𝗻𝗻𝗶𝗯𝗮𝗹𝘀𝗼𝗯𝘀𝗲𝘀𝘀𝗶𝗼𝗻](https://github.com/Cannibalsobsession)
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗹𝗶𝗴𝗵𝘁𝘁𝗵𝗮𝘁𝘁𝗿𝗶𝗲𝘀](https://github.com/lightthattries) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗖𝗮𝗻𝗻𝗶𝗯𝗮𝗹𝘀𝗼𝗯𝘀𝗲𝘀𝘀𝗶𝗼𝗻](https://github.com/Cannibalsobsession)
 
 $\color{#e0c9ff}{\text{𝘏𝘦𝘭𝘭𝘰 𝘮𝘺 𝘥𝘦𝘢𝘳 𝘮𝘺 𝘭𝘪𝘧𝘦 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘩𝘢𝘴 𝘣𝘦𝘦𝘯 𝘨𝘳𝘦𝘢𝘵,}}$
 $\color{#ccbfff}{\text{𝘺𝘰𝘶 𝘢𝘳𝘦 𝘰𝘯𝘦 𝘰𝘧 𝘵𝘩𝘦 𝘣𝘦𝘴𝘵 𝘵𝘩𝘪𝘯𝘨𝘴 𝘵𝘩𝘢𝘵 𝘩𝘢𝘱𝘱𝘦𝘯𝘥 𝘵𝘰 𝘮𝘦 𝘪𝘯 𝘢 𝘸𝘩𝘪𝘭𝘦,}}$
 $\color{#afa4f5}{\text{𝘪𝘵𝘴 𝘴𝘰 𝘴𝘢𝘥 𝘸𝘦 𝘤𝘢𝘯 𝘣𝘢𝘳𝘭𝘦𝘺 𝘴𝘦𝘦 𝘦𝘢𝘤𝘩 𝘪𝘵𝘩𝘦𝘳 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘰𝘶𝘵 𝘵𝘪𝘮𝘦 𝘻𝘰𝘯𝘦𝘴 𝘪 𝘧𝘪𝘯𝘥 𝘪𝘵 𝘲𝘶𝘰𝘵𝘦 𝘶𝘱𝘴𝘦𝘵𝘵𝘪𝘯𝘨,}}$ 
 $\color{#8b7ee0}{\text{𝘣𝘶𝘵 𝘴𝘵𝘪𝘭𝘭 𝘪 𝘢𝘮 𝘩𝘢𝘱𝘱𝘺 𝘦𝘷𝘦𝘳𝘺 𝘵𝘪𝘮𝘦 𝘪 𝘤𝘢𝘯 𝘴𝘦𝘦 𝘺𝘰𝘶 .ᐟ}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝘁𝗵𝗲-𝘀𝗼𝘂𝗹-𝗲𝗰𝗹𝗲𝗰𝘁𝗶𝗰](https://github.com/the-soul-eclectic) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐂𝐚𝐬𝐩𝐞𝐫}}$ 
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝘁𝗵𝗲-𝘀𝗼𝘂𝗹-𝗲𝗰𝗹𝗲𝗰𝘁𝗶𝗰](https://github.com/the-soul-eclectic) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐂𝐚𝐬𝐩𝐞𝐫}}$ 
 
 $\color{#e0c9ff}{\text{𝘏𝘈𝘐 𝘏𝘌𝘓𝘓𝘖 𝘏𝘈𝘐 𝘗𝘈𝘞𝘚 𝘖𝘕 𝘠𝘖𝘜𝘙 𝘍𝘈𝘊𝘌}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗧𝗵𝗲𝗮𝘀𝘁𝗿𝗮𝗹𝗰𝗿𝗮𝗯](http://github.com/Theastralcrab) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗥𝟯𝗴𝗲𝗰𝘁](http://github.com/R3gect)
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗧𝗵𝗲𝗮𝘀𝘁𝗿𝗮𝗹𝗰𝗿𝗮𝗯](http://github.com/Theastralcrab) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗥𝟯𝗴𝗲𝗰𝘁](http://github.com/R3gect)
 
 $\color{#e0c9ff}{\text{𝘑𝘶𝘴𝘵 𝘸𝘢𝘯𝘵𝘦𝘥 𝘵𝘰 𝘮𝘢𝘬𝘦 𝘴𝘶𝘳𝘦 𝘴𝘩𝘦 𝘬𝘯𝘰𝘸𝘴 𝘐 𝘭𝘰𝘷𝘦 𝘩𝘦𝘳 <3 𝘚𝘩𝘦 𝘮𝘦𝘢𝘯𝘴 𝘵𝘩𝘦 𝘸𝘰𝘳𝘭𝘥 𝘵𝘰 𝘮𝘦}}$
 $\color{#ccbfff}{\text{𝘢𝘯𝘥 𝘐 𝘥𝘰𝘯’𝘵 𝘵𝘩𝘪𝘯𝘬 𝘵𝘩𝘢𝘵 𝘸𝘪𝘭𝘭 𝘦𝘷𝘦𝘳 𝘤𝘩𝘢𝘯𝘨𝘦, 𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘈𝘴𝘵𝘳𝘢𝘭, 𝘥𝘰𝘯’𝘵 𝘴𝘵𝘰𝘱 𝘣𝘦𝘪𝘯𝘨 𝘺𝘰𝘶.}}$
 $\color{#afa4f5}{\text{𝘛𝘩𝘦 𝘸𝘰𝘳𝘭𝘥 𝘪𝘴 𝘮𝘰𝘳𝘦 𝘣𝘦𝘢𝘶𝘵𝘪𝘧𝘶𝘭 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘪𝘯 𝘪𝘵 𝘢𝘯𝘥 𝘯𝘰𝘵 𝘦𝘷𝘦𝘯 𝘵𝘩𝘦 𝘴𝘵𝘢𝘳𝘴 𝘤𝘢𝘯 𝘤𝘰𝘮𝘱𝘢𝘳𝘦 𝘵𝘰 𝘺𝘰𝘶𝘳 𝘣𝘦𝘢𝘶𝘵𝘺.}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗺𝗶𝗰𝗵𝗮𝗯𝘂𝗿𝗴𝗲𝗿𝗸𝗶𝗻𝗴](http://github.com/michaburgerking) , [𝗸𝗲𝗲𝗽𝗺𝗲𝗼𝗻𝗳𝗶𝗿𝗲](http://github.com/keepmeonfire) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗮𝘀𝗵-𝗱𝗶𝗲𝘀-𝗮𝗹𝗼𝗻𝗲](http://github.com/ash-dies-alone)
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗺𝗶𝗰𝗵𝗮𝗯𝘂𝗿𝗴𝗲𝗿𝗸𝗶𝗻𝗴](http://github.com/michaburgerking), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗸𝗲𝗲𝗽𝗺𝗲𝗼𝗻𝗳𝗶𝗿𝗲](http://github.com/keepmeonfire) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗮𝘀𝗵-𝗱𝗶𝗲𝘀-𝗮𝗹𝗼𝗻𝗲](http://github.com/ash-dies-alone)
 
 $\color{#e0c9ff}{\text{𝘩𝘪.ᐟ 𝘪𝘮 𝘯𝘰𝘵 𝘴𝘶𝘳𝘦 𝘪𝘧 𝘺𝘰𝘶'𝘭𝘭 𝘴𝘦𝘦 𝘵𝘩𝘪𝘴 𝘣𝘶𝘵 𝘴𝘵𝘪𝘭𝘭. 𝘮𝘪𝘤𝘩𝘢, 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘣𝘦𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘮𝘦 𝘵𝘩𝘳𝘰𝘶𝘨𝘩 𝘢𝘭𝘭 𝘵𝘩𝘦𝘴𝘦 𝘺𝘦𝘢𝘳𝘴.}}$
 $\color{#ccbfff}{\text{𝘪 𝘸𝘪𝘴𝘩 𝘪 𝘤𝘰𝘶𝘭𝘥'𝘷𝘦 𝘣𝘦𝘦𝘯 𝘢𝘣𝘭𝘦 𝘵𝘰 𝘴𝘢𝘺 𝘵𝘩𝘢𝘵 𝘵𝘰 𝘬𝘪𝘸𝘪... ;}}$
@@ -210,11 +210,11 @@ $\color{#8b7ee0}{\text{𝘢𝘭𝘴𝘰 𝘪 𝘸𝘢𝘯𝘵𝘦𝘥 𝘵𝘰 �
 $\color{#796cd9}{\text{𝘪 𝘕𝘌𝘌𝘋 𝘵𝘰 𝘱𝘭𝘢𝘺 𝘱𝘦𝘢𝘬. 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶. 𝘮𝘪𝘤𝘩𝘢. ; 𝘪 𝘭𝘰𝘷𝘦 𝘢𝘭𝘭 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴.}}$
 $\color{#655dc7}{\text{𝘪 𝘩𝘰𝘱𝘦 𝘵𝘩𝘦𝘺 𝘬𝘯𝘰𝘸 𝘵𝘩𝘦𝘺'𝘳𝘦 𝘭𝘰𝘷𝘦𝘥. 𝘱𝘭𝘢𝘵𝘰𝘯𝘪𝘤𝘢𝘭𝘭𝘺}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗰-𝘂𝘁𝗲𝘀𝘆](http://github.com/c-utesy) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐊𝐢𝐭𝐭}}$
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗰-𝘂𝘁𝗲𝘀𝘆](http://github.com/c-utesy) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐊𝐢𝐭𝐭}}$
 
 $\color{#e0c9ff}{\text{𝘩𝘪 𝘮𝘰𝘦 𝘪𝘭𝘺 𝘺𝘰𝘶'𝘳𝘦 𝘴𝘦𝘳𝘪𝘰𝘶𝘴𝘭𝘺 𝘴𝘰 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘢𝘯𝘥 𝘪𝘭𝘺 𝘰𝘬.ᐣ 𝘥𝘪𝘥 𝘪 𝘴𝘢𝘺 𝘪𝘭𝘺 𝘩𝘢𝘩𝘢 𝘰𝘬 𝘣𝘺𝘦. 𝘭𝘦𝘭𝘦𝘭𝘦 :𝘗}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗖𝗲𝗺𝗲𝘁𝗲𝗿𝘆𝗚𝗮𝘁𝗲𝘇](http://github.com/CemeteryGatez) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐕𝐢𝐤𝐭𝐨𝐫}}$ ([𝗞𝗮𝘆𝗹𝗲𝗶𝗴𝗵𝗝𝘂𝗱𝗮𝘀](http://github.com/KayleighJudas))
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗖𝗲𝗺𝗲𝘁𝗲𝗿𝘆𝗚𝗮𝘁𝗲𝘇](http://github.com/CemeteryGatez) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐕𝐢𝐤𝐭𝐨𝐫}}$ ([𝗞𝗮𝘆𝗹𝗲𝗶𝗴𝗵𝗝𝘂𝗱𝗮𝘀](http://github.com/KayleighJudas))
 
 $\color{#e0c9ff}{\text{𝘐𝘵'𝘴 𝘩𝘢𝘳𝘥 𝘧𝘰𝘳 𝘮𝘦 𝘵𝘰 𝘱𝘶𝘵 𝘪𝘯𝘵𝘰 𝘸𝘰𝘳𝘥𝘴 𝘩𝘰𝘸 𝘮𝘶𝘤𝘩 𝘐 𝘢𝘥𝘰𝘳𝘦 𝘺𝘰𝘶 𝘢𝘯𝘥 𝘩𝘰𝘸 𝘨𝘦𝘯𝘶𝘪𝘯𝘦𝘭𝘺 𝘨𝘳𝘢𝘵𝘦𝘧𝘶𝘭 𝘐 𝘢𝘮 𝘵𝘩𝘢𝘵 𝘺𝘰𝘶 𝘤𝘢𝘮𝘦 𝘪𝘯𝘵𝘰 𝘮𝘺 𝘭𝘪𝘧𝘦.}}$
 $\color{#ccbfff}{\text{𝘈𝘧𝘵𝘦𝘳 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘪𝘯𝘨 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘯𝘦𝘨𝘢𝘵𝘪𝘷𝘪𝘵𝘺, 𝘐 𝘵𝘩𝘰𝘶𝘨𝘩𝘵 𝘧𝘰𝘳 𝘴𝘶𝘳𝘦 𝘐'𝘥 𝘮𝘦𝘴𝘴 𝘵𝘩𝘪𝘴 𝘶𝘱 𝘵𝘰𝘰. 𝘉𝘶𝘵 𝘐 𝘩𝘢𝘷𝘦𝘯'𝘵.}}$
@@ -223,14 +223,14 @@ $\color{#afa4f5}{\text{𝘕𝘰 𝘮𝘢𝘵𝘵𝘦𝘳 𝘸𝘩𝘢𝘵 𝘐 �
 $\color{#8b7ee0}{\text{𝘠𝘰𝘶'𝘳𝘦 𝘢𝘭𝘸𝘢𝘺𝘴 𝘢 𝘴𝘩𝘰𝘶𝘭𝘥𝘦𝘳 𝘵𝘰 𝘭𝘦𝘢𝘯 𝘰𝘯, 𝘢𝘯𝘥 𝘐'𝘮 𝘨𝘭𝘢𝘥 𝘐 𝘤𝘢𝘯 𝘣𝘦 𝘺𝘰𝘶𝘳 𝘴𝘩𝘰𝘶𝘭𝘥𝘦𝘳 𝘵𝘰𝘰.}}$
 $\color{#796cd9}{\text{𝘠𝘰𝘶'𝘳𝘦 𝘵𝘩𝘦 𝘩𝘪𝘨𝘩𝘭𝘪𝘨𝘩𝘵 𝘰𝘧 𝘮𝘺 𝘥𝘢𝘺, 𝘦𝘷𝘦𝘳𝘺 𝘥𝘢𝘺. 𝘈𝘯𝘥 𝘧𝘰𝘳 𝘵𝘩𝘢𝘵, 𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘨𝘳𝘦𝘢𝘵𝘭𝘺.}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗘𝘃𝗮𝗻𝗲𝘀𝗰𝗲𝗻𝘁𝗗𝗿𝗲𝗮𝗺𝗲𝗿](http://github.com/EvanescentDreamer) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐫𝐨𝐰𝐥𝐞𝐲}}$ ([𝗿𝟬𝘄𝗹𝘆𝘀](http://github.com/r0wlys))
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗘𝘃𝗮𝗻𝗲𝘀𝗰𝗲𝗻𝘁𝗗𝗿𝗲𝗮𝗺𝗲𝗿](http://github.com/EvanescentDreamer) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐫𝐨𝐰𝐥𝐞𝐲}}$ ([𝗿𝟬𝘄𝗹𝘆𝘀](http://github.com/r0wlys))
 
 $\color{#e0c9ff}{\text{𝘸𝘦 𝘸𝘰𝘶𝘭𝘥 𝘭𝘪𝘬𝘦 𝘵𝘰 𝘴𝘵𝘢𝘳𝘵 𝘰𝘧𝘧 𝘸𝘪𝘵𝘩 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘦𝘷𝘢𝘯. 𝘺𝘰𝘶 𝘢𝘳𝘦 𝘢𝘯 𝘢𝘮𝘢𝘻𝘪𝘯𝘨 𝘧𝘳𝘪𝘦𝘯𝘥 𝘢𝘯𝘥 𝘸𝘦 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦 𝘪𝘵 𝘚𝘖 𝘮𝘶𝘤𝘩 𝘸𝘩𝘦𝘯 𝘺𝘰𝘶 𝘭𝘪𝘴𝘵𝘦𝘯 𝘵𝘰 𝘰𝘶𝘳 𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘴,}}$
 $\color{#ccbfff}{\text{𝘵𝘢𝘭𝘬 𝘵𝘰 𝘶𝘴, 𝘢𝘯𝘥 𝘫𝘶𝘴𝘵 𝘣𝘦 𝘢 𝘨𝘳𝘦𝘢𝘵 𝘧𝘳𝘪𝘦𝘯𝘥 𝘪𝘯 𝘨𝘦𝘯𝘦𝘳𝘢𝘭. 𝘸𝘦 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦 𝘺𝘰𝘶 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘢𝘯𝘥 𝘸𝘰𝘶𝘭𝘥 𝘯𝘰𝘵 𝘸𝘪𝘴𝘩 𝘧𝘰𝘳 𝘢𝘯𝘺𝘰𝘯𝘦 𝘥𝘪𝘧𝘧𝘦𝘳𝘦𝘯𝘵.}}$
 
 $\color{#afa4f5}{\text{𝘸𝘦 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘢 𝘭𝘰𝘵/𝘱 𝘢𝘯𝘥 𝘸𝘦 𝘢𝘭𝘭, 𝘦𝘷𝘦𝘯 𝘵𝘰𝘯𝘺, 𝘦𝘯𝘫𝘰𝘺 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵𝘪𝘰𝘯𝘴 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶.}}$
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗥𝟯𝗴𝗲𝗰𝘁](http://github.com/R3gect), [𝗰𝘂𝗽𝟭𝗱𝗰𝘂𝗽𝘀](http://github.com/cup1dcups),[𝗴𝘂𝘁𝘁𝗽𝘂𝗸𝗿𝗿](http://github.com/guttpukrr),[𝘀𝗹𝗲𝗲𝗽𝘆𝗮𝗿𝗰𝗮𝗱𝗲](http://github.com/sleepyarcade) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗧𝗵𝗲𝗮𝘀𝘁𝗿𝗮𝗹𝗰𝗿𝗮𝗯](http://github.com/Theastralcrab)
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗥𝟯𝗴𝗲𝗰𝘁](http://github.com/R3gect), [𝗰𝘂𝗽𝟭𝗱𝗰𝘂𝗽𝘀](http://github.com/cup1dcups), [𝗴𝘂𝘁𝘁𝗽𝘂𝗸𝗿𝗿](http://github.com/guttpukrr), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝘀𝗹𝗲𝗲𝗽𝘆𝗮𝗿𝗰𝗮𝗱𝗲](http://github.com/sleepyarcade) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗧𝗵𝗲𝗮𝘀𝘁𝗿𝗮𝗹𝗰𝗿𝗮𝗯](http://github.com/Theastralcrab)
 
 $\color{#e0c9ff}{\text{𝘙𝘦𝘨𝘦𝘤𝘵, 𝘺𝘰𝘶'𝘳𝘦 𝘸𝘰𝘯𝘥𝘦𝘳𝘧𝘶𝘭 𝘢𝘯𝘥 𝘥𝘰 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘢𝘣𝘥 𝘦𝘷𝘦𝘯 𝘮𝘰𝘳𝘦 𝘵𝘩𝘢𝘯 𝘦𝘯𝘰𝘶𝘨𝘩 𝘵𝘰 𝘮𝘢𝘬𝘦 𝘮𝘪𝘯𝘦 𝘢𝘯𝘥 𝘡𝘦'𝘴 𝘥𝘢𝘺 𝘸𝘰𝘯𝘥𝘦𝘳𝘧𝘶𝘭.}}$
 
@@ -245,7 +245,7 @@ $\color{#655dc7}{\text{𝘠𝘰𝘶'𝘳𝘦 𝘸𝘰𝘯𝘥𝘦𝘳𝘧𝘶�
 
 $\color{#655dc7}{\text{𝘠𝘰𝘶 𝘢𝘭𝘭 𝘥𝘦𝘴𝘦𝘳𝘷𝘦 𝘵𝘩𝘦 𝘣𝘦𝘴𝘵.}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗥𝗼𝘄𝗹𝘆𝘀](http://github.com/r0wlys) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐄𝐯𝐚𝐧}}$ [𝗘𝘃𝗮𝗻𝗲𝘀𝗰𝗲𝗻𝘁𝗗𝗿𝗲𝗮𝗺𝗲𝗿](http://github.com/EvanescentDreamer)
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗥𝗼𝘄𝗹𝘆𝘀](http://github.com/r0wlys) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐄𝐯𝐚𝐧}}$ [𝗘𝘃𝗮𝗻𝗲𝘀𝗰𝗲𝗻𝘁𝗗𝗿𝗲𝗮𝗺𝗲𝗿](http://github.com/EvanescentDreamer)
 
 $\color{#e0c9ff}{\text{𝘏𝘦𝘺, 𝘺𝘰𝘶 𝘮𝘰𝘴𝘲𝘶𝘪𝘵𝘰𝘦𝘴, 𝘪𝘧 𝘺𝘢'𝘭𝘭 𝘢𝘳𝘦 𝘳𝘦𝘢𝘥𝘪𝘯𝘨 𝘵𝘩𝘪𝘴. 𝘐 𝘳𝘦𝘢𝘥 𝘺𝘰𝘶𝘳 𝘮𝘦𝘴𝘴𝘢𝘨𝘦, 𝘭𝘰𝘷𝘦𝘥 𝘪𝘵 𝘢𝘯𝘥}}$
 $\color{#ccbfff}{\text{𝘦𝘷𝘦𝘯 𝘵𝘦𝘢𝘳𝘦𝘥 𝘶𝘱 𝘢𝘵 𝘵𝘩𝘦 𝘤𝘰𝘮𝘮𝘦𝘯𝘵. 𝘗𝘦𝘰𝘱𝘭𝘦 𝘥𝘰𝘯'𝘵 𝘨𝘦𝘵 𝘯𝘪𝘤𝘦 𝘤𝘰𝘮𝘮𝘦𝘯𝘵𝘴 𝘭𝘪𝘬𝘦 𝘵𝘩𝘢𝘵 𝘰𝘧𝘵𝘦𝘯 𝘶𝘯𝘭𝘦𝘴𝘴 𝘪𝘵'𝘴 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘮𝘢𝘫𝘰𝘳.}}$
@@ -256,13 +256,13 @@ $\color{#655dc7}{\text{𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶, 𝘪𝘧 𝘐 𝘤𝘰
 
 $\color{#655dc7}{\text{𝘖𝘩, 𝘢𝘯𝘥 𝘧𝘰𝘭𝘭𝘰𝘸 𝘵𝘩𝘦𝘮.ᐟ 𝘛𝘩𝘦𝘺'𝘳𝘦 𝘨𝘳𝘦𝘢𝘵, 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦𝘺 𝘴𝘦𝘦𝘮 𝘢 𝘭𝘪𝘵𝘵𝘭𝘦 𝘴𝘩𝘺 𝘢𝘵 𝘧𝘪𝘳𝘴𝘵 (𝘺𝘦𝘢𝘩, 𝘐'𝘮 𝘤𝘢𝘭𝘭𝘪𝘯𝘨 𝘺𝘢'𝘭𝘭 𝘰𝘶𝘵 𝘨𝘦𝘩𝘦𝘩𝘦)}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗺𝗼𝘅𝘅𝗮𝗿𝗲𝗹𝗹𝗮𝗮](https://github.com/moxxarellaa) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝘁𝗵𝗲-𝗮𝗿𝗰𝗵𝗽𝗿𝗶𝗲𝘀𝘁](https://github.com/the-archpriest)
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗺𝗼𝘅𝘅𝗮𝗿𝗲𝗹𝗹𝗮𝗮](https://github.com/moxxarellaa) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝘁𝗵𝗲-𝗮𝗿𝗰𝗵𝗽𝗿𝗶𝗲𝘀𝘁](https://github.com/the-archpriest)
 
 $\color{#e0c9ff}{\text{𝘮𝘺 𝘣𝘦𝘴𝘵𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥.ᐟ.ᐟ 𝘪 𝘤𝘢𝘳𝘦 𝘢𝘣𝘰𝘶𝘵 𝘺𝘰𝘶 𝘴𝘰 𝘴𝘰 𝘮𝘶𝘤𝘩, 𝘪'𝘮 𝘷𝘦𝘳𝘺 𝘤𝘰𝘯𝘵𝘦𝘯𝘵 𝘵𝘰 𝘩𝘢𝘷𝘦 𝘮𝘦𝘵 𝘺𝘰𝘶 𝘰𝘷𝘦𝘳 𝘴𝘪𝘭𝘭𝘺 𝘱𝘪𝘹𝘦𝘭𝘴, 𝘢𝘯𝘥 𝘪 𝘩𝘰𝘱𝘦 𝘺𝘰𝘶 𝘬𝘯𝘰𝘸 𝘪}}$
 $\color{#ccbfff}{\text{𝘦𝘯𝘫𝘰𝘺 𝘦𝘷𝘦𝘳𝘺 𝘴𝘦𝘤𝘰𝘯𝘥 𝘸𝘦 𝘴𝘱𝘦𝘯𝘥 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳. 𝘷𝘰𝘪𝘤𝘦𝘤𝘩𝘢𝘵𝘵𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘢𝘯𝘥 𝘳𝘢𝘨𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘰𝘷𝘦𝘳 𝘴𝘵𝘶𝘱𝘪𝘥 𝘳𝘰𝘣𝘭𝘰𝘹 𝘨𝘢𝘮𝘦𝘴 𝘪𝘴 𝘸𝘩𝘢𝘵 𝘮𝘢𝘬𝘦𝘴}}$
 $\color{#afa4f5}{\text{𝘮𝘺 𝘥𝘢𝘺𝘴 𝘣𝘦𝘵𝘵𝘦𝘳.ᐟ 𝘣𝘦𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘪𝘴 𝘢𝘭𝘸𝘢𝘺𝘴 𝘧𝘶𝘯 𝘵𝘸𝘪𝘯, 𝘺𝘰𝘶 𝘢𝘳𝘦 𝘴𝘰 𝘤𝘰𝘰𝘭}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗺𝘂𝘁𝗶𝗜𝗮𝘁𝗼𝗿](https://github.com/mutiIator) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐭𝐫𝐚𝐯𝐢𝐬/𝐢𝐯𝐚𝐧}}$ ([𝘁𝗿𝗮𝘃𝗶𝘀𝗿𝗮𝗽𝗶𝗱𝗱](https://github.com/travisrapidd))
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗺𝘂𝘁𝗶𝗜𝗮𝘁𝗼𝗿](https://github.com/mutiIator) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐭𝐫𝐚𝐯𝐢𝐬/𝐢𝐯𝐚𝐧}}$ ([𝘁𝗿𝗮𝘃𝗶𝘀𝗿𝗮𝗽𝗶𝗱𝗱](https://github.com/travisrapidd))
 
 $\color{#e0c9ff}{\text{𝘰𝘶𝘳 𝘣𝘦𝘭𝘰𝘷𝘦𝘥 𝘲𝘱𝘱, 𝘵𝘩𝘦 𝘣𝘦𝘴𝘵 𝘱𝘦𝘳𝘴𝘰𝘯 𝘪𝘯 𝘰𝘶𝘳 𝘭𝘪𝘷𝘦𝘴. 𝘺𝘰𝘶'𝘷𝘦 𝘣𝘦𝘦𝘯 𝘵𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘶𝘴 𝘦𝘷𝘦𝘯 𝘸𝘩𝘦𝘯 𝘸𝘦'𝘳𝘦 𝘥𝘰𝘪𝘯𝘨 𝘴𝘰 𝘣𝘢𝘥 𝘸𝘦 𝘥𝘰𝘯'𝘵 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘴𝘱𝘦𝘢𝘬,}}$
 $\color{#ccbfff}{\text{𝘢𝘯𝘥 𝘸𝘦 𝘤𝘢𝘯𝘯𝘰𝘵 𝘵𝘩𝘢𝘯𝘬 𝘶 𝘦𝘯𝘰𝘶𝘨𝘩 𝘧𝘰𝘳 𝘵𝘩𝘢𝘵. 𝘸𝘦 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘣𝘦 𝘢 𝘴𝘩𝘰𝘶𝘭𝘥𝘦𝘳 𝘧𝘰𝘳 𝘺𝘰𝘶 𝘵𝘰 𝘴𝘢𝘧𝘦𝘭𝘺 𝘳𝘦𝘭𝘺 𝘰𝘯. 𝘞𝘦 𝘤𝘢𝘳𝘦 𝘧𝘰𝘳 𝘺𝘰𝘶 𝘵𝘩𝘦 𝘴𝘢𝘮𝘦 𝘸𝘢𝘺 𝘸𝘦'𝘳𝘦 𝘴𝘶𝘳𝘦 𝘺𝘰𝘶 𝘥𝘰 𝘧𝘰𝘳 𝘶𝘴 𝘵𝘰𝘰. 𝘸𝘦'𝘳𝘦 𝘭𝘰𝘰𝘬𝘪𝘯𝘨 𝘧𝘰𝘳𝘸𝘢𝘳𝘥 𝘵𝘰 𝘴𝘱𝘦𝘯𝘥 𝘢𝘴 𝘮𝘶𝘤𝘩 𝘵𝘪𝘮𝘦 𝘢𝘴 𝘱𝘰𝘴𝘴𝘪𝘣𝘭𝘦 𝘸𝘪𝘳𝘩 𝘺𝘰𝘶.}}$
@@ -271,20 +271,20 @@ $\color{#8b7ee0}{\text{𝘠𝘰𝘶'𝘳𝘦 𝘴𝘰 𝘢𝘸𝘦𝘴𝘰𝘮�
 $\color{#796cd9}{\text{𝘺𝘰𝘶'𝘳𝘦 𝘫𝘶𝘴𝘵 𝘭𝘰𝘷𝘦𝘭𝘺 𝘢𝘯𝘥 𝘸𝘦 𝘩𝘰𝘱𝘦 𝘰𝘶𝘳 𝘵𝘪𝘮𝘦 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 𝘪𝘴 𝘮𝘰𝘳𝘦 𝘵𝘩𝘢𝘯 𝘸𝘦 𝘤𝘢𝘯 𝘤𝘶𝘳𝘳𝘦𝘯𝘵𝘭𝘺 𝘪𝘮𝘢𝘨𝘪𝘯𝘦,}}$
 $\color{#655dc7}{\text{𝘢𝘯𝘥 𝘵𝘩𝘢𝘵 𝘺𝘰𝘶 𝘦𝘯𝘫𝘰𝘺 𝘴𝘱𝘦𝘯𝘥𝘪𝘯𝘨 𝘴𝘢𝘪𝘥 𝘵𝘪𝘮𝘦 𝘸𝘪𝘵𝘩 𝘶𝘴, 𝘵𝘩𝘦 𝘴𝘢𝘮𝘦 𝘸𝘢𝘺 𝘸𝘦 𝘥𝘰. 𝘞𝘰𝘳𝘥𝘴 𝘤𝘢𝘯𝘯𝘰𝘵 𝘥𝘦𝘴𝘤𝘳𝘪𝘣𝘦 𝘵𝘩𝘦 𝘢𝘮𝘰𝘶𝘯𝘵 𝘰𝘧 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘪𝘰𝘯 𝘸𝘦 𝘩𝘢𝘷𝘦 𝘵𝘰𝘸𝘢𝘳𝘥𝘴 𝘺𝘰𝘶. 𝘓𝘰𝘷𝘦 𝘺𝘰𝘶 (ʃƪ＾3＾)}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗖𝗼𝗿𝗶𝗻𝘁𝗵𝗲𝘂𝘀𝘀](https://github.com/Corintheuss) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐉𝐚𝐜𝐤}}$ ([𝗣𝗶𝗿𝗮𝘁𝗲-𝗳𝗿𝗲𝗮𝗸](https://github.com/Pirate-freak))
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗖𝗼𝗿𝗶𝗻𝘁𝗵𝗲𝘂𝘀𝘀](https://github.com/Corintheuss) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐉𝐚𝐜𝐤}}$ ([𝗣𝗶𝗿𝗮𝘁𝗲-𝗳𝗿𝗲𝗮𝗸](https://github.com/Pirate-freak))
 
 $\color{#e0c9ff}{\text{𝘏𝘦𝘺𝘺𝘺 𝘺𝘰𝘶 𝘴𝘵𝘪𝘯𝘬𝘸𝘳 .ᐟ.ᐟ 𝘞𝘴𝘱𝘱𝘱 .ᐟ.ᐟ 𝘛𝘺𝘴𝘮 𝘧𝘰𝘳 𝘣𝘦𝘪𝘯𝘨 𝘵𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘮𝘦 , 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦 𝘸𝘰𝘳𝘭𝘥 𝘩𝘢𝘴 𝘨𝘰𝘯𝘦 𝘵𝘰 𝘴𝘩𝘪𝘵 .}}$
 $\color{#ccbfff}{\text{𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘭𝘪𝘵𝘵𝘭𝘦 𝘣𝘳𝘰 𝘢𝘯𝘥 𝘐'𝘥 𝘤𝘰𝘯𝘵𝘪𝘯𝘶𝘦 𝘥𝘰𝘪𝘯𝘨 𝘴𝘰 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦 𝘸𝘰𝘳𝘭𝘥 𝘸𝘢𝘴 𝘢𝘣𝘰𝘶𝘵 𝘵𝘰 𝘦𝘯𝘥}}$
 
 $\color{#afa4f5}{\text{𝘓𝘰𝘷𝘦 @𝘱𝘪𝘳𝘢𝘵𝘦-𝘧𝘳𝘦𝘢𝘬 𝘰𝘯 𝘨𝘩}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗳𝗹𝗼𝘄𝗲𝗿𝘀𝗲𝗮𝘀𝗮𝗹𝘁](https://github.com/flowerseasalt) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐒𝐈𝐍𝐗}}$ ([𝗢𝗹𝗴𝗮𝗦𝗶𝗻𝘅𝗲𝗿](https://github.com/OlgaSinxer))
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗳𝗹𝗼𝘄𝗲𝗿𝘀𝗲𝗮𝘀𝗮𝗹𝘁](https://github.com/flowerseasalt) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐒𝐈𝐍𝐗}}$ ([𝗢𝗹𝗴𝗮𝗦𝗶𝗻𝘅𝗲𝗿](https://github.com/OlgaSinxer))
 
 $\color{#e0c9ff}{\text{𝘏𝘐 𝘚𝘛𝘐𝘕𝘒𝘠 𝘋𝘌𝘈𝘙𝘠! 𝘐𝘔 𝘎𝘜𝘕𝘕𝘈 𝘛𝘏𝘙𝘖𝘞 𝘛𝘖𝘔𝘈𝘛𝘖𝘌𝘚 𝘈𝘛 𝘠𝘜 𝘐𝘕 𝘈 𝘕𝘐𝘊𝘌 𝘞𝘈𝘠- 𝘖𝘒 𝘏𝘈𝘝𝘌 𝘈 𝘝𝘌𝘙𝘠 𝘎𝘜𝘋 𝘋𝘈𝘠 𝘋𝘌𝘈𝘙𝘠.ᐟ.ᐟ.ᐟ}}$
 
 $\color{#ccbfff}{\text{𝘟𝘋𝘋𝘋.ᐟ.ᐟ.ᐟ.ᐟ}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝘄𝗮𝘃𝗲𝗿𝗶𝘆](https://github.com/waveriy) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐉𝐨𝐞𝐲}}$
+$\color{#f6f0ff}{\text{♡︎}}$ [𝘄𝗮𝘃𝗲𝗿𝗶𝘆](https://github.com/waveriy) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐉𝐨𝐞𝐲}}$
 
 $\color{#e0c9ff}{\text{𝘩𝘦𝘺 𝘯𝘶𝘮𝘣𝘯𝘶𝘵𝘴 𝘪𝘮 𝘯𝘰𝘵 𝘨𝘰𝘰𝘥 𝘢𝘵 𝘣𝘦𝘪𝘯𝘨 𝘴𝘦𝘯𝘵𝘪𝘮𝘦𝘯𝘵𝘢𝘭 𝘣𝘶𝘵 𝘪 𝘤𝘰𝘯𝘴𝘪𝘥𝘦𝘳 𝘺𝘰𝘶 𝘰𝘯𝘦 𝘰𝘧 𝘮𝘺 𝘷𝘦𝘳𝘺 𝘤𝘭𝘰𝘴𝘦 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘢𝘯𝘥 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘺𝘰𝘶𝘳𝘦 𝘧𝘦𝘪𝘨𝘯𝘪𝘯𝘨 𝘯𝘰𝘯𝘤𝘩𝘢𝘭𝘢𝘯𝘤𝘦 𝘓𝘐𝘒𝘌 𝘈𝘓𝘓 𝘛𝘏𝘌 𝘋𝘈𝘔𝘕 𝘛𝘐𝘔𝘌}}$
 $\color{#ccbfff}{\text{𝘺𝘰𝘶𝘳𝘦 𝘴𝘵𝘪𝘭𝘭 𝘳𝘦𝘢𝘭𝘭𝘺 𝘤𝘰𝘰𝘭 𝘵𝘰 𝘮𝘦 𝘢𝘯𝘥 𝘪 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦 𝘺𝘰𝘶 𝘴𝘵𝘪𝘤𝘬𝘪𝘯𝘨 𝘢𝘳𝘰𝘶𝘯𝘥 𝘧𝘰𝘳 𝘢𝘴𝘭𝘰𝘯𝘨 𝘢𝘴 𝘺𝘰𝘶 𝘩𝘢𝘷𝘦 𝘰𝘬}}$
@@ -292,7 +292,7 @@ $\color{#ccbfff}{\text{𝘺𝘰𝘶𝘳𝘦 𝘴𝘵𝘪𝘭𝘭 𝘳𝘦𝘢�
 $\color{#afa4f5}{\text{𝘢𝘯𝘺𝘸𝘢𝘺 𝘪 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘣𝘳𝘰 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘺𝘰𝘶 𝘥𝘰𝘯𝘵 𝘴𝘦𝘦 𝘵𝘴 𝘫𝘶𝘴𝘵 𝘬𝘯𝘰𝘸 𝘺𝘰𝘶𝘳𝘦 𝘢 𝘷𝘦𝘳𝘺 𝘥𝘦𝘢𝘳 𝘧𝘳𝘪𝘦𝘯𝘥 𝘰𝘧 𝘮𝘪𝘯𝘦}}$
 $\color{#8b7ee0}{\text{𝘮𝘦 𝘢𝘯𝘥 𝘪 𝘭𝘰𝘰𝘬 𝘧𝘰𝘳𝘸𝘢𝘳𝘥 𝘵𝘰 𝘵𝘢𝘭𝘬𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘢𝘯𝘥 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘨𝘢𝘮𝘦𝘴 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘦𝘷𝘦𝘳𝘺𝘵𝘪𝘮𝘦 𝘸𝘦 𝘥𝘰 𝘪 𝘎𝘜𝘌𝘚𝘚.}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗼𝗽𝘁𝗶𝗽𝗮𝘄𝘀](http://github.com/optipaws), [𝗢𝗹𝗴𝗮𝗦𝗶𝗻𝘅𝗲𝗿](http://github.com/OlgaSinxer) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗳𝗹𝗼𝘄𝗲𝗿𝘀𝗲𝗮𝘀𝗮𝗹𝘁](http://github.com/flowerseasalt)
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗼𝗽𝘁𝗶𝗽𝗮𝘄𝘀](http://github.com/optipaws), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗢𝗹𝗴𝗮𝗦𝗶𝗻𝘅𝗲𝗿](http://github.com/OlgaSinxer) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗳𝗹𝗼𝘄𝗲𝗿𝘀𝗲𝗮𝘀𝗮𝗹𝘁](http://github.com/flowerseasalt)
 
 $\color{#e0c9ff}{\text{𝘋𝘖𝘡𝘠 𝘠𝘖𝘜 𝘈𝘙𝘌 𝘈𝘓𝘞𝘈𝘠𝘚 𝘚𝘖 𝘏𝘈𝘗𝘗𝘠 𝘈𝘕𝘋 𝘛𝘏𝘈𝘛 𝘔𝘈𝘒𝘌𝘚 𝘔𝘌 𝘏𝘈𝘗𝘗𝘠 𝘕𝘖 𝘔𝘈𝘛𝘛𝘌𝘙 𝘞𝘏𝘈𝘛 𝘈𝘓𝘙𝘌𝘈𝘋𝘠 𝘏𝘈𝘗𝘗𝘌𝘕𝘌𝘋 𝘐𝘕 𝘔𝘠 𝘋𝘈𝘠}}$
 $\color{#ccbfff}{\text{(𝘵𝘰𝘮𝘢𝘵𝘰𝘦𝘴 𝘣𝘢𝘤𝘬) 𝘈𝘕𝘋 𝘔𝘈𝘔𝘈 𝘖𝘗𝘖𝘗 𝘠𝘖𝘜 𝘈𝘙𝘌 𝘚𝘖 𝘎𝘖𝘈𝘛𝘌𝘋 𝘍𝘖𝘙 𝘎𝘐𝘝𝘐𝘕𝘎 𝘔𝘌 𝘛𝘏𝘈𝘛 𝘌𝘟𝘛𝘙𝘈 𝘗𝘜𝘚𝘏 𝘛𝘖 𝘎𝘌𝘛 𝘔𝘌 𝘖𝘜𝘛 𝘖𝘍 𝘈 𝘉𝘈𝘋}}$
@@ -300,7 +300,7 @@ $\color{#afa4f5}{\text{𝘙𝘌𝘓𝘈𝘛𝘐𝘖𝘕𝘚𝘏𝘐𝘗}}$
 
 $\color{#8b7ee0}{\text{𝘚𝘦𝘤𝘰𝘯𝘥 𝘪𝘯 𝘤𝘰𝘮𝘮𝘢𝘯𝘥 𝘪𝘯 𝘎𝘢𝘳𝘳𝘶𝘴 𝘵𝘰𝘰𝘵𝘴 𝘰𝘧𝘧}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗳𝗹𝗼𝘄𝗲𝗿𝘀𝗲𝗮𝘀𝗮𝗹𝘁](http://github.com/flowerseasalt), [𝗹𝘆𝗻𝘅𝗰𝗶𝗳𝗶𝗲𝗱](http://github.com/lynxcified), $\color{#f6f0ff}{\text{𝗼𝗽𝘁𝗶𝗽𝗮𝘄𝘀'𝘀 𝗴𝗳 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗼𝗽𝘁𝗶𝗽𝗮𝘄𝘀](http://github.com/optipaws)
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗳𝗹𝗼𝘄𝗲𝗿𝘀𝗲𝗮𝘀𝗮𝗹𝘁](http://github.com/flowerseasalt), [𝗹𝘆𝗻𝘅𝗰𝗶𝗳𝗶𝗲𝗱](http://github.com/lynxcified), $\color{#f6f0ff}{\text{𝐚𝐧𝐝 𝗼𝗽𝘁𝗶𝗽𝗮𝘄𝘀'𝘀 𝗴𝗳 𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗼𝗽𝘁𝗶𝗽𝗮𝘄𝘀](http://github.com/optipaws)
 
 
 $\color{#e0c9ff}{\text{𝘐 𝘸𝘢𝘯𝘯𝘢 𝘵𝘩𝘢𝘯𝘬 𝘵𝘩𝘦𝘮 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘣𝘰𝘵𝘵𝘰𝘮 𝘰𝘧 𝘮𝘺 𝘩𝘦𝘢𝘳𝘵 𝘧𝘰𝘳 𝘣𝘦𝘪𝘯𝘨 𝘪𝘯 𝘮𝘺 𝘭𝘪𝘧𝘦 𝘢𝘯𝘥 𝘪𝘮 𝘴𝘰 𝘩𝘢𝘱𝘱𝘺 𝘧𝘰𝘳 𝘮𝘦𝘦𝘵𝘪𝘯𝘨 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘪 𝘸𝘪𝘴𝘩 𝘵𝘩𝘦𝘪𝘳 𝘭𝘪𝘧𝘦 𝘨𝘰𝘦𝘴}}$
@@ -308,35 +308,45 @@ $\color{#ccbfff}{\text{(𝘢𝘴 𝘵𝘩𝘦𝘺 𝘵𝘳𝘶𝘭𝘺 𝘸𝘪�
 
 $\color{#afa4f5}{\text{𝘗𝘭𝘦𝘢𝘴𝘦 𝘴𝘵𝘢𝘺 𝘪𝘯 𝘮𝘺 𝘭𝘪𝘧𝘦 𝘶𝘯𝘵𝘪𝘭 𝘪 𝘵𝘳𝘶𝘭𝘺 𝘨𝘰 𝘵𝘰 𝘵𝘩𝘦 𝘢𝘭𝘭𝘴𝘱𝘢𝘳𝘬}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗜𝗺𝗹𝗶𝘁𝗲𝗿𝗮𝗹𝗹𝘆𝗕𝗲𝗹𝗹](http://github.com/ImliterallyBell), [𝗼𝗽𝘁𝗶𝗽𝗮𝘄𝘀](http://github.com/optipaws), [𝗗𝗮𝗮𝗲𝗖𝗵𝗿𝗶𝘀𝘁𝗶𝗻𝗲](http://github.com/DaaeChristine), [𝗗𝗼𝘃𝗲𝘀𝗼𝗳𝗢𝗽𝘁𝗶𝗺𝘂𝘀](http://github.com/DovesofOptimus) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐂𝐢𝐚𝐫𝐚𝐧}}$ ([𝗹𝘆𝗻𝘅𝗰𝗶𝗳𝗶𝗲𝗱](http://github.com/lynxcified))
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗜𝗺𝗹𝗶𝘁𝗲𝗿𝗮𝗹𝗹𝘆𝗕𝗲𝗹𝗹](http://github.com/ImliterallyBell), [𝗼𝗽𝘁𝗶𝗽𝗮𝘄𝘀](http://github.com/optipaws), [𝗗𝗮𝗮𝗲𝗖𝗵𝗿𝗶𝘀𝘁𝗶𝗻𝗲](http://github.com/DaaeChristine), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗗𝗼𝘃𝗲𝘀𝗼𝗳𝗢𝗽𝘁𝗶𝗺𝘂𝘀](http://github.com/DovesofOptimus) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐂𝐢𝐚𝐫𝐚𝐧}}$ ([𝗹𝘆𝗻𝘅𝗰𝗶𝗳𝗶𝗲𝗱](http://github.com/lynxcified))
 
 $\color{#e0c9ff}{\text{𝘏𝘈𝘐𝘈𝘐𝘈𝘐𝘈 𝘠𝘖𝘜 𝘍𝘜𝘕𝘒𝘚.ᐟ.ᐟ.ᐟ 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘱𝘶𝘵𝘵𝘪𝘯𝘨 𝘶𝘱 𝘸𝘪𝘵𝘩 𝘮𝘦 𝘢𝘯𝘥 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘢𝘭𝘰𝘯𝘨, 𝘐 𝘸𝘢𝘴 𝘨𝘰𝘯𝘯𝘢 𝘨𝘪𝘷𝘦 𝘶𝘱 𝘰𝘯 𝘱𝘵 𝘢𝘧𝘵𝘦𝘳 𝘮𝘺 2 𝘦𝘹.ᐣ}}$
 $\color{#ccbfff}{\text{𝘍𝘳𝘪𝘦𝘯𝘥𝘴 𝘦𝘯𝘥𝘦𝘥 𝘶𝘱 𝘳𝘦𝘱𝘭𝘢𝘤𝘪𝘯𝘨 𝘮𝘦 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘨𝘦𝘯𝘶𝘪𝘯𝘦𝘭𝘺 𝘮𝘢𝘥𝘦 𝘮𝘦 𝘴𝘵𝘢𝘺 𝘧𝘪𝘭𝘭𝘪𝘯𝘨 𝘶𝘱 𝘵𝘩𝘦 𝘴𝘱𝘢𝘤𝘦 𝘸𝘪𝘵𝘩 𝘫𝘰𝘺 𝘢𝘯𝘥 𝘧𝘶𝘯𝘬, 𝘐𝘓𝘎𝘚𝘔.ᐟ.ᐟ 𝘗𝘩𝘢𝘳𝘮𝘢 𝘰𝘶𝘵}}$
 
 $\color{#afa4f5}{\text{𝘔𝘢𝘺 𝘰𝘶𝘳 𝘧𝘳𝘪𝘦𝘯𝘥𝘴𝘩𝘪𝘱 𝘣𝘦 𝘢𝘴 𝘴𝘵𝘳𝘰𝘯𝘨 𝘢𝘴 𝘵𝘩𝘦 𝘮𝘢𝘵𝘳𝘪𝘹.}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗴𝗲𝗿𝗺𝗮𝗻𝘀𝘁𝗮𝗿𝗲](http://github.com/germanstare) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐊𝐚𝐳}}$ ([𝗣𝗼𝗶𝘀𝗼𝗻𝗲𝗱𝗿𝗶𝘁𝘂𝗮𝗹](https://github.com/poisonedritual))
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗴𝗲𝗿𝗺𝗮𝗻𝘀𝘁𝗮𝗿𝗲](http://github.com/germanstare) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐊𝐚𝐳}}$ ([𝗣𝗼𝗶𝘀𝗼𝗻𝗲𝗱𝗿𝗶𝘁𝘂𝗮𝗹](https://github.com/poisonedritual))
 
 $\color{#e0c9ff}{\text{𝘏𝘐𝘐 𝘟𝘈𝘓 𝘐 𝘓𝘖𝘝𝘌 𝘜 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘚𝘖 𝘔𝘠𝘊𝘏 𝘜 𝘔𝘌𝘈𝘕 𝘛𝘏𝘌 𝘞𝘖𝘙𝘓𝘋 𝘛𝘖 𝘔𝘌 𝘜𝘙 𝘔𝘛 𝘌𝘝𝘌𝘙𝘠𝘛𝘏𝘐𝘕𝘎 𝘐 𝘓𝘖𝘝𝘌 𝘜 𝘜𝘙 𝘈𝘞𝘙𝘚𝘖𝘔𝘌 𝘜𝘙 𝘈𝘞𝘌𝘚𝘖𝘔𝘌 𝘐 𝘓𝘝𝘖𝘌 𝘜 𝘐 𝘓𝘖𝘝𝘌 𝘜😢😢𝘐 𝘓𝘖𝘖𝘖𝘝𝘌𝘌 𝘠𝘖𝘠𝘜𝘛𝘜𝘜𝘠𝘖𝘠𝘖𝘠𝘖𝘠𝘐𝘛𝘠𝘜}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗙𝗶𝘀𝗵𝘁𝗻𝗲𝘁](http://github.com/Fishtnet), [𝘂𝗸𝗲𝘀𝗽𝗮𝗺𝘁𝗼𝗻](http://github.com/ukespamton), [𝗱𝗼𝗴𝘁𝗶𝗲𝗿](http://github.com/dogtier) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐚𝐧𝐭𝐲}}$
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗙𝗶𝘀𝗵𝘁𝗻𝗲𝘁](http://github.com/Fishtnet), [𝘂𝗸𝗲𝘀𝗽𝗮𝗺𝘁𝗼𝗻](http://github.com/ukespamton), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗱𝗼𝗴𝘁𝗶𝗲𝗿](http://github.com/dogtier) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐚𝐧𝐭𝐲}}$
 
 $\color{#e0c9ff}{\text{𝘢𝘸𝘦𝘩𝘩 𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘴𝘰 𝘢𝘮𝘢𝘻𝘪𝘯𝘨.ᐟ.ᐟ.ᐟ 𝘵𝘣𝘩 𝘪 𝘩𝘢𝘷𝘦𝘯𝘵 𝘵𝘢𝘭𝘬𝘦𝘥 𝘵𝘰 𝘴𝘶𝘮 𝘰𝘧 𝘶 𝘪𝘯 𝘢𝘸𝘩𝘪𝘭𝘦 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘱𝘦𝘳𝘴𝘰𝘯𝘢𝘭 𝘵𝘩𝘪𝘯𝘨𝘴, 𝘣𝘶𝘵 𝘐 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦 𝘶𝘳 𝘨𝘶𝘺𝘴' 𝘤𝘰𝘮𝘱𝘢𝘯𝘺 𝘴𝘮.ᐟ.ᐟ.ᐟ 𝘸𝘦 𝘢𝘭𝘭 𝘨𝘰𝘯𝘯𝘢 𝘤𝘶𝘥𝘥𝘭𝘦 𝘢𝘯𝘥 𝘩𝘶𝘨 𝘰𝘬𝘦𝘺𝘺....ᐣ.ᐣ.ᐣ}}$
 $\color{#ccbfff}{\text{ᵔ—ᵔ 𝘜 𝘎𝘐𝘝 𝘔𝘌 𝘔𝘖𝘌 𝘈𝘎𝘙𝘌𝘚𝘚𝘐𝘖𝘕 𝘋𝘈𝘞𝘞𝘌𝘏𝘏𝘏}}$
 
 $\color{#afa4f5}{\text{𝘵𝘩𝘺 𝘢𝘳𝘦 𝘷𝘦𝘳𝘺 𝘤𝘶𝘵𝘦 𝘢𝘯𝘥 𝘯𝘪𝘤𝘦...𝘧𝘰𝘭𝘭𝘰𝘸 𝘥𝘦𝘮.ᐟ}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗖𝗮𝗽𝘁𝗮𝗶𝗻𝗦𝗮𝗻𝗱𝗶𝘄𝗶𝗰𝗵](http://github.com/CaptainSandawich), [𝗟𝘆𝗻𝘅𝗰𝗶𝗳𝗶𝗲𝗱](http://github.com/Lynxcified) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐁𝐞𝐥𝐥}}$
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗖𝗮𝗽𝘁𝗮𝗶𝗻𝗦𝗮𝗻𝗱𝗶𝘄𝗶𝗰𝗵](http://github.com/CaptainSandawich), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗟𝘆𝗻𝘅𝗰𝗶𝗳𝗶𝗲𝗱](http://github.com/Lynxcified) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐁𝐞𝐥𝐥}}$
 
 $\color{#e0c9ff}{\text{𝘏𝘐𝘐 𝘤𝘩𝘶𝘥𝘪𝘵𝘺𝘴. 𝘑𝘶𝘴𝘵 𝘸𝘢𝘯𝘯𝘢 𝘴𝘢𝘺 𝘩𝘰𝘸 𝘮𝘶𝘤𝘩 𝘐 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦 𝘺𝘰𝘶 𝟤, 𝘸𝘩𝘦𝘯𝘦𝘷𝘦𝘳 𝘐 𝘧𝘦𝘦𝘭 𝘥𝘰𝘸𝘯, 𝘊𝘢𝘱𝘵 𝘢𝘯𝘥 𝘊𝘪𝘢𝘳𝘢𝘯 𝘐 𝘤𝘢𝘯 𝘢𝘭𝘸𝘢𝘺𝘴 𝘵𝘢𝘭𝘬 𝘵𝘰 𝘢𝘯𝘥 𝘧𝘦𝘦𝘭 𝘣𝘦𝘵𝘵𝘦𝘳.}}$
 $\color{#ccbfff}{\text{𝘠𝘰𝘶 𝘵𝘸𝘰 𝘮𝘢𝘬𝘦 𝘮𝘦 𝘭𝘢𝘶𝘨𝘩 𝘢𝘯𝘥 𝘨𝘪𝘷𝘦 𝘮𝘦 𝘪𝘯𝘴𝘱𝘪𝘳𝘢𝘵𝘪𝘰𝘯. 𝘠𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘴𝘰 𝘵𝘢𝘭𝘦𝘯𝘵𝘦𝘥, 𝘴𝘵𝘳𝘰𝘯𝘨 𝘢𝘯𝘥 𝘧𝘶𝘯𝘯𝘺. 𝘛𝘺𝘴𝘮 𝘧𝘰𝘳 𝘴𝘵𝘪𝘤𝘬𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘮𝘴.ᐟ.ᐟ}}$
 
 $\color{#afa4f5}{\text{𝘐 𝘓𝘖𝘝𝘌 𝘜𝟤.ᐟ 𝘍𝘰𝘭𝘭𝘰𝘸 𝘊𝘢𝘱𝘵𝘢𝘪𝘯𝘚𝘢𝘯𝘥𝘪𝘸𝘪𝘤𝘩, 𝘓𝘺𝘯𝘹𝘤𝘪𝘧𝘪𝘦𝘥}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝘀𝘄𝗲𝗲𝘁𝗱𝗲𝗮𝘁𝗵𝘀𝘁𝗮𝗿](https://github.com/sweetdeathstar) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗸𝗲𝗿𝗿𝘂𝘀𝗸𝗲](https://github.com/sketchyremorse)
+$\color{#f6f0ff}{\text{♡︎}}$ [𝘀𝘄𝗲𝗲𝘁𝗱𝗲𝗮𝘁𝗵𝘀𝘁𝗮𝗿](https://github.com/sweetdeathstar) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗸𝗲𝗿𝗿𝘂𝘀𝗸𝗲](https://github.com/sketchyremorse)
 
 $\color{#e0c9ff}{\text{𝘩𝘪𝘪𝘪𝘶𝘺𝘺𝘺𝘱𝘴 𝘳𝘦𝘯𝘳𝘦𝘯 ,, 𝘐 𝘭𝘰𝘷𝘦 𝘩𝘰𝘸 𝘺𝘰𝘶 𝘮𝘢𝘬𝘦 𝘢𝘯𝘺𝘣𝘰𝘥𝘺 𝘩𝘢𝘱𝘱𝘺, 𝘮𝘢𝘬𝘪𝘯𝘨 𝘵𝘩𝘦𝘪𝘳 𝘥𝘢𝘺. 𝘐 𝘬𝘯𝘰𝘸 𝘵𝘩𝘢𝘵 𝘸𝘩𝘦𝘯 𝘺𝘰𝘶 𝘢𝘳𝘦 𝘵𝘩𝘦𝘳𝘦 , 𝘦𝘷𝘦𝘳𝘺𝘵𝘩𝘪𝘯𝘨 𝘸𝘪𝘭𝘭}}$
 $\color{#ccbfff}{\text{𝘣𝘦 𝘧𝘶𝘯. 𝘺𝘰𝘶 𝘢𝘳𝘦 𝘵𝘩𝘦 𝘥𝘢𝘺 , 𝘵𝘩𝘦 𝘭𝘪𝘨𝘩𝘵 , 𝘵𝘩𝘦 𝘴𝘪𝘭𝘢𝘩𝘪𝘴 𝘵𝘩𝘢𝘵 𝘮𝘢𝘬𝘦𝘴 𝘮𝘦 𝘣𝘦𝘤𝘰𝘮𝘦 𝘦𝘹𝘤𝘪𝘵𝘦𝘥 𝘰𝘯 𝘧𝘪𝘯𝘪𝘴𝘩𝘪𝘯𝘨 𝘮𝘺 𝘴𝘵𝘶𝘥𝘪𝘦𝘴.}}$
+
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗛𝗮𝗺-𝗺𝗶𝗹𝘁𝗼𝗻](https://github.com/Ham-milton) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗘𝘁𝗵𝗮𝗻](https://github.com/𝗛𝗲𝗮𝗿𝘁𝟬𝗳𝗚𝗼𝗹𝗱)
+
+$\color{#e0c9ff}{\text{𝘏𝘦𝘭𝘭𝘰 𝘵𝘩𝘦𝘳𝘦, 𝘭𝘢𝘥! 𝘐'𝘮 𝘳𝘦𝘢𝘭𝘭𝘺 𝘨𝘭𝘢𝘥 𝘵𝘩𝘢𝘵 𝘐 𝘮𝘦𝘵 𝘢𝘯𝘥 𝘣𝘦𝘤𝘢𝘮𝘦 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶. 𝘐 𝘢𝘭𝘸𝘢𝘺𝘴 𝘸𝘢𝘪𝘵 𝘧𝘰𝘳 𝘺𝘰𝘶 𝘵𝘰 𝘣𝘦𝘤𝘰𝘮𝘦 𝘰𝘯𝘭𝘪𝘯𝘦. 𝘠𝘰𝘶}}$
+$\color{#ccbfff}{\text{𝘣𝘳𝘪𝘨𝘩𝘵𝘦𝘯 𝘶𝘱 𝘮𝘺 𝘥𝘢𝘺 𝘦𝘷𝘦𝘳𝘺𝘵𝘪𝘮𝘦 𝘸𝘦 𝘤𝘩𝘢𝘵 𝘢𝘯𝘥 𝘐 𝘧𝘦𝘦𝘭 𝘴𝘰 𝘫𝘰𝘺𝘰𝘶𝘴 𝘦𝘢𝘤𝘩 𝘵𝘪𝘮𝘦!! 𝘐 𝘢𝘥𝘮𝘪𝘳𝘦𝘥 𝘺𝘰𝘶 𝘢𝘴 𝘸𝘦𝘭𝘭, 𝘫𝘢? 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘣𝘦𝘪𝘯𝘨}}$
+$\color{#afa4f5}{\text{𝘸𝘪𝘵𝘩 𝘮𝘦 𝘶𝘯𝘵𝘪𝘭 𝘯𝘰𝘸.}}$
+
+$\color{#8b7ee0}{\text{𝘋𝘰𝘯'𝘵 𝘦𝘯𝘷𝘺 𝘰𝘵𝘩𝘦𝘳𝘴.. 𝘠𝘰𝘶 𝘸𝘪𝘭𝘭 𝘢𝘭𝘸𝘢𝘺𝘴 𝘣𝘦 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘪𝘯 𝘮𝘺 𝘦𝘺𝘦𝘴, 𝘭𝘢𝘥. 𝘐'𝘮 𝘵𝘳𝘶𝘭𝘺 𝘨𝘳𝘢𝘵𝘦𝘧𝘶𝘭 𝘵𝘰 𝘩𝘢𝘷𝘦 𝘺𝘰𝘶.}}$
+$\color{#796cd9}{\text{𝘔𝘺 𝘵𝘳𝘶𝘦 𝘢𝘯𝘥 𝘣𝘦𝘴𝘵 𝘮𝘢𝘵𝘦, 𝘐𝘤𝘩 𝘭𝘪𝘦𝘣𝘦 𝘥𝘪𝘤𝘩!}}$
+
 
 <div align="center">
 
@@ -345,4 +355,4 @@ $\color{#ccbfff}{\text{𝘣𝘦 𝘧𝘶𝘯. 𝘺𝘰𝘶 𝘢𝘳𝘦 𝘵𝘩
 
   <img src="https://file.garden/ade0uRrc7hT3IuzM/2854a0fb2f212883bbe733a2db09a87e.gif" width="850" height="150">
 
-𝐋𝐀𝐒𝐓 𝐋𝐎𝐆: *ᴏᴄᴛᴏʙᴇʀ. 19, 2026*
+𝐋𝐀𝐒𝐓 𝐋𝐎𝐆: *ᴏᴄᴛᴏʙᴇʀ. 21, 2026*
