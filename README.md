@@ -355,7 +355,7 @@ $\color{#afa4f5}{\text{𝘱𝘦𝘰𝘱𝘭𝘦, 𝘐'𝘮 𝘴𝘰 𝘩𝘢𝘱
 
 $\color{#8b7ee0}{\text{𝘠𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘴𝘰 𝘤𝘰𝘰𝘭 𝘯𝘦𝘷𝘦𝘳 𝘥𝘰𝘶𝘣𝘵 𝘺𝘰𝘶𝘳𝘴𝘦𝘭𝘧 :–D}}$
 
-$\color{#f6f0ff}{\text{♡︎}}$ [𝗟𝟬𝘀𝘁-𝗩𝗲𝗶𝘄](https://github.com/L0st-Veiw), [𝗻𝘆𝗮𝟯𝗮𝗻𝗻𝗶𝗲](https://github.com/nya3annie), [𝗧𝗵𝗲𝗟𝗮𝗯𝘆𝗿𝗶𝗻𝘁𝗵𝗢𝗳𝗟𝗶𝗳𝗲 ](https://github.com/TheLabyrinthOfLife), [𝗗𝗮𝗮𝗲𝗖𝗵𝗿𝗶𝘀𝘁𝗶𝗻𝗲](https://github.com/DaaeChristine), [𝗟𝘆𝗻𝘅𝗰𝗶𝗳𝗶𝗲𝗱](https://github.com/Lynxcified) {𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐏𝐫𝐢𝐦𝐞}}$
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗟𝟬𝘀𝘁-𝗩𝗲𝗶𝘄](https://github.com/L0st-Veiw), [𝗻𝘆𝗮𝟯𝗮𝗻𝗻𝗶𝗲](https://github.com/nya3annie), [𝗧𝗵𝗲𝗟𝗮𝗯𝘆𝗿𝗶𝗻𝘁𝗵𝗢𝗳𝗟𝗶𝗳𝗲 ](https://github.com/TheLabyrinthOfLife), [𝗗𝗮𝗮𝗲𝗖𝗵𝗿𝗶𝘀𝘁𝗶𝗻𝗲](https://github.com/DaaeChristine), [𝗟𝘆𝗻𝘅𝗰𝗶𝗳𝗶𝗲𝗱](https://github.com/Lynxcified) 𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐏𝐫𝐢𝐦𝐞
 
 $\color{#e0c9ff}{\text{𝘩.𝘦𝘭𝘭𝘰 𝘮𝘺 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘮𝘪𝘤𝘢𝘴 ᵔᵔ 𝘺.𝘰𝘶 𝘢𝘭𝘭 𝘮𝘦𝘢𝘯𝘵 𝘵𝘩𝘦 𝘸𝘰𝘳𝘭𝘥 𝘵𝘰 𝘮𝘦. 𝘦.𝘷𝘦𝘯 𝘪𝘧 𝘪 𝘸𝘢𝘴 𝘢 𝘭𝘪𝘵𝘵𝘭𝘦 𝘥𝘪𝘴𝘵𝘢𝘯𝘵, 𝘱.𝘶𝘵𝘵𝘪𝘯𝘨 𝘵𝘩𝘢𝘵 𝘢𝘴𝘪𝘥𝘦.}}$
 $\color{#ccbfff}{\text{𝘪 𝘵.𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘧𝘰𝘳 𝘣𝘦𝘪𝘯𝘨 𝘵𝘩𝘦𝘳𝘦 𝘵𝘩𝘦 𝘨𝘰𝘰𝘥 𝘥𝘢𝘺𝘴, 𝘵𝘩𝘦 𝘣𝘢𝘥 𝘥𝘢𝘺𝘴, 𝘢𝘯𝘥 𝘵𝘩𝘦 𝘭𝘪𝘵𝘵𝘭𝘦 𝘮𝘰𝘮𝘦𝘯𝘵𝘴 𝘪𝘯 𝘣𝘦𝘵𝘸𝘦𝘦𝘯.}}$
