@@ -347,6 +347,13 @@ $\color{#afa4f5}{\text{𝘸𝘪𝘵𝘩 𝘮𝘦 𝘶𝘯𝘵𝘪𝘭 𝘯𝘰�
 $\color{#8b7ee0}{\text{𝘋𝘰𝘯'𝘵 𝘦𝘯𝘷𝘺 𝘰𝘵𝘩𝘦𝘳𝘴.. 𝘠𝘰𝘶 𝘸𝘪𝘭𝘭 𝘢𝘭𝘸𝘢𝘺𝘴 𝘣𝘦 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘪𝘯 𝘮𝘺 𝘦𝘺𝘦𝘴, 𝘭𝘢𝘥. 𝘐'𝘮 𝘵𝘳𝘶𝘭𝘺 𝘨𝘳𝘢𝘵𝘦𝘧𝘶𝘭 𝘵𝘰 𝘩𝘢𝘷𝘦 𝘺𝘰𝘶.}}$
 $\color{#796cd9}{\text{𝘔𝘺 𝘵𝘳𝘶𝘦 𝘢𝘯𝘥 𝘣𝘦𝘴𝘵 𝘮𝘢𝘵𝘦, 𝘐𝘤𝘩 𝘭𝘪𝘦𝘣𝘦 𝘥𝘪𝘤𝘩!}}$
 
+$\color{#f6f0ff}{\text{♡︎}}$ [𝗼𝗱𝗱𝘆𝘀𝗲𝘆𝗱𝘂𝗼](https://github.com/oddyseyduo), [𝗹𝗶𝗾𝘂𝗶𝗱𝘀𝗺𝗼𝗼𝘁𝗵](https://github.com/liquidsmooth),  [𝗱𝗲𝗮𝗱𝗯𝗿𝗶𝗱𝗲𝘄𝗮𝗹𝗸𝗶𝗻𝗴](https://github.com/deadbridewalking) $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗦𝗣𝗫𝟮𝗜𝘀𝗛𝗲𝗿𝗲](https://github.com/SPX2IsHere) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗔𝘄𝘇𝗲](https://github.com/chemicalshot)
+
+$\color{#e0c9ff}{\text{𝘠𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘴𝘰 𝘧𝘶𝘯𝘯𝘺 𝘢𝘯𝘥 𝘴𝘸𝘦𝘦𝘵 𝘐 𝘭𝘰𝘷𝘦 𝘺𝘢𝘭𝘭, 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘴𝘰 𝘢𝘮𝘢𝘻𝘪𝘯𝘨 𝘢𝘯𝘥 𝘐 𝘭𝘰𝘷𝘦 𝘴𝘱𝘦𝘯𝘥𝘪𝘯𝘨 𝘮𝘺}}$
+$\color{#ccbfff}{\text{ 𝘵𝘪𝘮𝘦 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘸𝘩𝘦𝘯𝘦𝘷𝘦𝘳 𝘐 𝘤𝘢𝘯 𝘢𝘯𝘥 𝘵𝘢𝘭𝘬 𝘢𝘯𝘥 𝘫𝘰𝘬𝘦 𝘢𝘳𝘰𝘶𝘯𝘥 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴, 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘳𝘦𝘢𝘭𝘭𝘺 𝘢𝘳𝘦 𝘢𝘮𝘢𝘻𝘪𝘯𝘨}}$
+$\color{#afa4f5}{\text{𝘱𝘦𝘰𝘱𝘭𝘦, 𝘐'𝘮 𝘴𝘰 𝘩𝘢𝘱𝘱𝘺 𝘐 𝘮𝘦𝘵 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴. :–)}}$
+
+$\color{#8b7ee0}{\text{𝘠𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘴𝘰 𝘤𝘰𝘰𝘭 𝘯𝘦𝘷𝘦𝘳 𝘥𝘰𝘶𝘣𝘵 𝘺𝘰𝘶𝘳𝘴𝘦𝘭𝘧 :–D}}$
 
 <div align="center">
 
@@ -355,4 +362,4 @@ $\color{#796cd9}{\text{𝘔𝘺 𝘵𝘳𝘶𝘦 𝘢𝘯𝘥 𝘣𝘦𝘴𝘵 �
 
   <img src="https://file.garden/ade0uRrc7hT3IuzM/2854a0fb2f212883bbe733a2db09a87e.gif" width="850" height="150">
 
-𝐋𝐀𝐒𝐓 𝐋𝐎𝐆: *ᴏᴄᴛᴏʙᴇʀ. 21, 2026*
+𝐋𝐀𝐒𝐓 𝐋𝐎𝐆: *ᴏᴄᴛᴏʙᴇʀ. 25, 2026*
