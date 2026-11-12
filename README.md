@@ -177,10 +177,10 @@ $\color{#e0c9ff}{\text{𝘺𝘰𝘶 𝘵𝘸𝘰 𝘮𝘢𝘬𝘦 𝘮𝘺 𝘥�
 $\color{#ccbfff}{\text{𝘠𝘰𝘶 𝘴𝘩𝘰𝘶𝘭𝘥 𝘧𝘰𝘭𝘭𝘰𝘸 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘮𝘦 (𝘖𝘏𝘉𝘜𝘕𝘕𝘠𝘉𝘜𝘕𝘕𝘠) 𝘰𝘯 𝘨𝘪𝘵𝘩𝘶𝘣 𝘸𝘦 𝘤𝘰𝘰𝘭 𝘵𝘳𝘶𝘴𝘵 /𝘫𝘰𝘬𝘦}}$
 
 
-   $\color{#f6f0ff}{\text{♡︎}}$ [𝗽𝗮𝘄𝗳𝗲𝗰𝘁𝘁](https://github.com/pawfectt) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐦𝐨𝐞 𝐦𝐨𝐞}}$
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗸𝗶𝘁𝘁𝗶𝗲𝘀𝘁](https://github.com/kittiest) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗺𝗼𝗲 𝗺𝗼𝗲](https://github.com/c-utesy)
 
 
-$\color{#e0c9ff}{\text{𝘏𝘪 𝘮𝘺 𝘧𝘪𝘳𝘴𝘵 𝘌𝘝𝘌𝘙 𝘧𝘳𝘪𝘦𝘯𝘥 𝘰𝘯 ♯𝘗𝘵 𝘪 𝘩𝘰𝘱𝘦 𝘺𝘰𝘶𝘳𝘦 𝘥𝘰𝘪𝘯𝘨 𝘨𝘰𝘰𝘥 𝘢𝘯𝘥 𝘢𝘭𝘭 𝘰𝘬 .ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ.ᐣ 𝘭𝘢𝘭𝘢𝘭𝘢}}$
+$\color{#e0c9ff}{\text{𝘩𝘦𝘭𝘭𝘰𝘰𝘪 𝘩𝘢𝘪 𝘤𝘶𝘱 𝘪𝘭𝘺𝘵 𝘰𝘬 🙂💗💗 𝘴𝘵𝘢𝘺 𝘤𝘶𝘵𝘦 𝘢𝘯𝘥 𝘴𝘢𝘧𝘦 𝘰𝘬 !!!!!!!!!}}$
 
 
    $\color{#f6f0ff}{\text{♡︎}}$ [𝗹𝗶𝗴𝗵𝘁𝘁𝗵𝗮𝘁𝘁𝗿𝗶𝗲𝘀](https://github.com/lightthattries) $\color{#f6f0ff}{\text{𝐫𝐞𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗖𝗮𝗻𝗻𝗶𝗯𝗮𝗹𝘀𝗼𝗯𝘀𝗲𝘀𝘀𝗶𝗼𝗻](https://github.com/Cannibalsobsession)
